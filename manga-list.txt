@@ -3,8 +3,31 @@
 3x3 Eyes 37
 3-gatsu no Yume (oneshoot) (A Dream in March)
 Akihabara@Deep 5
+Air Gear 1
+Air Gear 2
+Air Gear 3
+Air Gear 4
+Air Gear 5
+Air Gear 6
+Air Gear 7
+Air Gear 8
+Air Gear 9
+Air Gear 10
+Air Gear 11
+Air Gear 12
+Air Gear 13
+Air Gear 14
+Air Gear 15
+Air Gear 16
+Air Gear 17
+Air Gear 18
+Air Gear 19
 Air Gear 20
 Air Gear 22
+Air Gear 24
+Air Gear 29
+Air Gear 31
+Akagami no Shirayukihime 11
 Akane-kun no Kokoro (oneshot) (Akane's Heart)
 Akatsuki no Yona 1
 Akatsuki no Yona 2
@@ -15,8 +38,12 @@ Akatsuki no Yona 6
 Akatsuki no Yona 7
 Akatsuki no Yona 8
 Aldnoah.Zero 1
-Ao no Exorcist 1
-Ao no Exorcist 2
+Aldnoah.Zero 2
+Aldnoah.Zero 3
+Aldnoah.Zero 4 end
+Aldnoah.Zero 2nd Season 1
+Aldnoah.Zero 2nd Season 2
+Aldnoah.Zero 2nd Season 3
 Anagle Mole 1
 Anagle Mole 2
 Anagle Mole 3
@@ -26,12 +53,17 @@ Angelic Layer 1
 Angelic Layer 2
 Anne no Seishun 4 (Red Haired Anne)
 Anettai Girl (Subtropical Zone Girl) (oneshot)
+Ano Hi Mita Hana no Namae wo Bokutachi wa Mada Shiranai 1
 Ansatsu Kyoushitsu 1
 Ansatsu Kyoushitsu 2
 Ansatsu Kyoushitsu 3
 Ansatsu Kyoushitsu 4
 Ansatsu Kyoushitsu 5
-Aldnoah.Zero 1
+Ansatsu Kyoushitsu 6
+Ansatsu Kyoushitsu 7
+Ansatsu Kyoushitsu 8
+Ao no Exorcist 1
+Ao no Exorcist 2
 Arata Kangatari 1
 Arata Kangatari 2
 Arata Kangatari 3
@@ -117,6 +149,10 @@ Beelzebub 26
 Beelzebub 27
 Beelzebub 28 end
 Birdmen 1
+Black Bullet 1
+Black Bullet 2
+Black Bullet 3
+Black Bullet 4 end
 Blade of Immortal 18
 BLAME! 1
 BLAME! 2
@@ -139,6 +175,7 @@ BLEACH 41
 Blood Alone 1
 Blood Alone 3
 Blood Alone 4
+Blood Lad 1
 Bloody Monday 2
 Bloody Monday 8
 Bloody Monday 9
@@ -268,6 +305,19 @@ Dansai Bunri no Crime Edge 8
 Dansai Bunri no Crime Edge 9
 Dansai Bunri no Crime Edge 10
 Dansai Bunri no Crime Edge 11 end
+Deadman Wonderland 1
+Deadman Wonderland 2
+Deadman Wonderland 3
+Deadman Wonderland 4
+Deadman Wonderland 5
+Deadman Wonderland 6
+Deadman Wonderland 7
+Deadman Wonderland 8
+Deadman Wonderland 9
+Deadman Wonderland 10
+Deadman Wonderland 11
+Deadman Wonderland 12
+Deadman Wonderland 13 end
 Death Note 1
 Death Note 2
 Death Note 3
@@ -279,6 +329,9 @@ Death Note 9
 Death Note 10
 Death Note 11
 Death Note 12 end
+Delta Saga 1
+Delta Saga 2
+Delta Saga 3 end
 Denpa Kyoushi 1
 Denpa Kyoushi 2
 Denpa Kyoushi 3
@@ -323,6 +376,7 @@ Doraemon no Kuruma-Isu no Hon (oneshoot)
 Dou Nannyo!? (oneshoot) (Lovely Change)
 Double Baby (oneshot) (Penguin Summer)
 Dragon Ball 4
+Duel Masters 15
 Durarara!! 2
 Durarara!!: Saikai-hen 1
 Eiga Crayon Shin-chan: Kanzen Comic Arashi wo Yobu Mouretsu! Otona Teikoku no Gyakushu
@@ -436,6 +490,14 @@ Gin no Saji 11
 Gin no Saji 12
 Gin no Saji 13
 Gin no Saji 14
+Girls un Panzer 1
+Girls un Panzer 2
+Girls un Panzer 3
+Girls un Panzer 4 end
+Girls un Panzer Little Army 1
+Girls un Panzer Little Army 2 end
+Girls un Panzer Little Army II 1
+Girls un Panzer Little Army II 2
 Godhand Teru 35
 Godhand Teru 37
 Godhand Teru 38
@@ -450,6 +512,11 @@ Great Teacher Onizuka 5
 Great Teacher Onizuka 8
 Great Teacher Onizuka 12
 Great Teacher Onizuka 13
+Great Teacher Onizuka 21
+Great Teacher Onizuka 22
+Great Teacher Onizuka 23
+Great Teacher Onizuka 24
+Great Teacher Onizuka 25 end
 Green Blood 1
 Green Blood 2
 Green Blood 3
@@ -523,6 +590,7 @@ Highschool of the Dead 3
 Highschool of the Dead 4
 Highschool of the Dead 5
 Highschool of the Dead 6
+Highschool of the Dead 7 end (halted)
 Hokuto no Ken 1
 Homunculus 11
 Houkago Ponytail (oneshot) (After School x Ponytail)
@@ -558,6 +626,19 @@ Hyakko 2
 Hyakko 3
 I Am A Hero 1
 I Am A Hero 5
+Ichiba Kurogane wa Kasegitai 1
+Ichiba Kurogane wa Kasegitai 2
+Ichiba Kurogane wa Kasegitai 3
+Ichiba Kurogane wa Kasegitai 4
+Ichiba Kurogane wa Kasegitai 5
+Ichiba Kurogane wa Kasegitai 6
+Ichiba Kurogane wa Kasegitai 7
+Ichiba Kurogane wa Kasegitai 8
+Ichiba Kurogane wa Kasegitai 9
+Ichiba Kurogane wa Kasegitai 10
+Ichiba Kurogane wa Kasegitai 11
+Ichiba Kurogane wa Kasegitai 12
+Ichiba Kurogane wa Kasegitai 13 end
 Imawa no Kuni no Alice 1
 Imawa no Kuni no Alice 2
 Imawa no Kuni no Alice 3
@@ -580,6 +661,19 @@ Imawa no Michi no Alice 1
 Imawa no Michi no Alice 2
 Imawa no Michi no Alice 3
 Imawa no Michi no Alice 4
+Imawa no Michi no Alice 5
+Imawa no Michi no Alice 6
+Imawa no Michi no Alice 7
+Inari, Konkon, Koi Iroha. 1
+Inari, Konkon, Koi Iroha. 2
+Inari, Konkon, Koi Iroha. 3
+Inari, Konkon, Koi Iroha. 4
+Inari, Konkon, Koi Iroha. 5
+Inari, Konkon, Koi Iroha. 6
+Inari, Konkon, Koi Iroha. 7
+Inari, Konkon, Koi Iroha. 8
+Inari, Konkon, Koi Iroha. 9
+Inari, Konkon, Koi Iroha. 10 end
 Inuyasha 13
 Jinja no Mori no Noraneko-kun (Love on the Run) (oneshot)
 Jormungand 7
@@ -603,6 +697,7 @@ Kagetora 5
 Kagetora 8
 Kagetora 10
 Kagetora 11 end
+Kage Kara Mamoru 1 (The Bodyguard)
 Kaichou wa Maid-sama! 1
 Kaichou wa Maid-sama! 2
 Kaichou wa Maid-sama! 3
@@ -649,6 +744,7 @@ Kami Nomi zo Shiru Sekai 23
 Kami Nomi zo Shiru Sekai 24
 Kami Nomi zo Shiru Sekai 25
 Kami Nomi zo Shiru Sekai 26 end
+Kami Nomi zo Shiru Sekai on the train
 Kamichama Karin 2
 Kamichama Karin 4
 Kamichama Karin chu! 1
@@ -687,11 +783,17 @@ Kenji (Bunkouban) 10
 Kenji (Bunkouban) 11
 Kenji (Bunkouban) 12
 Keroro Gunsou 4
+Keroro Gunsou 9
 Keroro Gunsou 13
 Keroro Gunsou 16
 Keroro Gunsou 17
+Keroro Gunsou 18
+Keroro Gunsou 19
+Keroro Gunsou 20
+Keroro Gunsou 21
 Keroro Gunsou 22
 Keroro Gunsou 23
+Keroro Gunsou 24
 Keroro Gunsou Green
 Keroro Gunsou Pink
 Keroro Gunsou Red
@@ -729,6 +831,7 @@ King of Idol 3
 King of Idol 4
 King of Idol 5
 King of Idol 6 end
+Kiniro Mozaic 2
 Kanojo wa Uso wo Aishisugiteru 1
 Kanojo wa Uso wo Aishisugiteru 2
 Kanojo wa Uso wo Aishisugiteru 3
@@ -772,7 +875,17 @@ Magi: The Labyrinth of Magic 13
 Magi: The Labyrinth of Magic 14
 Magi: The Labyrinth of Magic 15
 Magi: The Labyrinth of Magic 16
+Magi: The Labyrinth of Magic 17
 Magi: The Labyrinth of Magic 18
+Magi: The Labyrinth of Magic 19
+Magi: The Labyrinth of Magic 20
+Magi: The Labyrinth of Magic 22
+Magi: The Labyrinth of Magic 23
+Magi: The Labyrinth of Magic 26
+Magi: The Labyrinth of Magic 27
+Magi: The Labyrinth of Magic 28
+Magi: The Labyrinth of Magic 29
+Magi: The Labyrinth of Magic 30
 Mahou no Iroha 1
 Mahou no Iroha 3 end
 Mahoutsukai no Yome 1
@@ -870,7 +983,12 @@ Montage 2
 Montage 3
 Montage 4
 Montage 5
+Montage 6
+Montage 7
+Mugen no Genkan no Yamato 1
 Mugen no Genkan no Yamato 2
+Mugen no Genkan no Yamato 11
+Mugen no Genkan no Yamato 13
 Mujirushi
 Muryojoku Girl 1
 Muryojoku Girl 2 end
@@ -917,6 +1035,17 @@ Nurarihyon no Mago 3
 Nurarihyon no Mago 4
 Nurarihyon no Mago 5
 Nurarihyon no Mago 6
+Nurarihyon no Mago 7
+Nurarihyon no Mago 8
+Nurarihyon no Mago 9
+Nurarihyon no Mago 10
+Nurarihyon no Mago 11
+Nurarihyon no Mago 12
+Nurarihyon no Mago 13
+Nurarihyon no Mago 14
+Nurarihyon no Mago 15
+Nurarihyon no Mago 16
+Nurarihyon no Mago 17
 One Piece 1
 One Piece 2
 One Piece 3
@@ -961,6 +1090,9 @@ Ore no Suki na Ko ga Brocon Sugiru (oneshoot) (Brother Complex' Girls!!)
 Otoboke Kachou 25
 Otoboke Kachou 26
 Otoyomegatari 3
+Out Code 1
+Out Code 2
+Out Code 3 end
 Ousama-tachi no Viking 1
 Over Drive 1
 Over Drive 4
@@ -984,6 +1116,8 @@ Rave 23
 Rave 35
 Rave: Plue Inu no Nikki 2
 Rave: Plue Inu no Nikki 3
+ReLife 1
+ReLife 2
 Rin 1
 Rin 2
 Rin 3
@@ -1029,6 +1163,7 @@ Rurouni Kenshin 25
 Rurouni Kenshin 26
 Rurouni Kenshin 27
 Rurouni Kenshin 28 end
+S Senjou no Tena (Tena on S-String) 6
 Sabagebu! 2
 Sabagebu! 3
 Sabagebu! 4
@@ -1102,6 +1237,14 @@ Shaman King 32 end
 Shigatsu wa Kimi no Uso 1
 Shigatsu wa Kimi no Uso 2
 Shigatsu wa Kimi no Uso 3
+Shigatsu wa Kimi no Uso 4
+Shigatsu wa Kimi no Uso 5
+Shigatsu wa Kimi no Uso 6
+Shigatsu wa Kimi no Uso 7
+Shigatsu wa Kimi no Uso 8
+Shigatsu wa Kimi no Uso 9
+Shigatsu wa Kimi no Uso 10
+Shigatsu wa Kimi no Uso 11 end
 Shin Chuuka Ichiban 4
 Shin Chuuka Ichiban 9
 Shin Chuuka Ichiban 11
@@ -1122,10 +1265,19 @@ Shingeki no Kyojin 6
 Shingeki no Kyojin 7
 Shingeki no Kyojin 8
 Shingeki no Kyojin 9
+Shingeki no Kyojin 10
+Shingeki no Kyojin 11
+Shingeki no Kyojin 12
+Shingeki no Kyojin 13
+Shingeki no Kyojin 14
+Shingeki no Kyojin 15
 Shingeki no Kyojin 16
 Shingeki no Kyojin 17
 Shingeki no Kyojin 18
+Shingeki no Kyojin 22
 Shingeki no Kyojin: Before The Fall 1
+Shingeki no Kyojin: No Regrets 1
+Shingeki no Kyojin: No Regrets 2 end
 Shinrei Tantei Yakumo 1
 Shinrei Tantei Yakumo 2
 Shinrei Tantei Yakumo 3
@@ -1162,6 +1314,8 @@ Sora Yori mo Takaku (Higher Than Sky) (oneshot)
 Soul Eater 17
 Soul Eater 23
 Soul Eater 25 end
+Subete ga F ni Naru 1
+Subete ga F ni Naru 2 end
 Sugars☆ (oneshoot)
 Takkoku!!! 1
 Takkoku!!! 2
@@ -1277,6 +1431,10 @@ Touch 26
 Toto 5
 Urusei Yatsura 28
 Urusei Yatsura 33
+Vero Musica 1
+Vero Musica 2
+Vero Musica 3
+Vero Musica 4 end
 Vinland Saga 1
 Vinland Saga 2
 Vinland Saga 3
