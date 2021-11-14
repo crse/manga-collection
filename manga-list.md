@@ -1,0 +1,1406 @@
+21st Century Boys 1
+3x3 Eyes 25
+3x3 Eyes 37
+3-gatsu no Yume (oneshoot) (A Dream in March)
+Akihabara@Deep 5
+Air Gear 20
+Air Gear 22
+Akane-kun no Kokoro (oneshot) (Akane's Heart)
+Akatsuki no Yona 1
+Akatsuki no Yona 2
+Akatsuki no Yona 3
+Akatsuki no Yona 4
+Akatsuki no Yona 5
+Akatsuki no Yona 6
+Akatsuki no Yona 7
+Akatsuki no Yona 8
+Aldnoah.Zero 1
+Ao no Exorcist 1
+Ao no Exorcist 2
+Anagle Mole 1
+Anagle Mole 2
+Anagle Mole 3
+Anagle Mole 4
+Anagle Mole 5 end
+Angelic Layer 1
+Angelic Layer 2
+Anne no Seishun 4 (Red Haired Anne)
+Anettai Girl (Subtropical Zone Girl) (oneshot)
+Ansatsu Kyoushitsu 1
+Ansatsu Kyoushitsu 2
+Ansatsu Kyoushitsu 3
+Ansatsu Kyoushitsu 4
+Ansatsu Kyoushitsu 5
+Aldnoah.Zero 1
+Arata Kangatari 1
+Arata Kangatari 2
+Arata Kangatari 3
+Arata Kangatari 4
+Arata Kangatari 5
+Arata Kangatari 6
+Area D Ino no Ryouiki 1
+Aria 1
+Aria 2
+Aria 8
+Arslan Senki 1
+Azumanga Daioh 4
+Baby Dare Yori mo Kimi ga Suki (oneshot) (Baby, I love you more)
+Bakuman. 1
+Bakuman. 2
+Bakuman. 3
+Bakuman. 4
+Bakuman. 5
+Bakuman. 6
+Bakuman. 7
+Bakuman. 8
+Bakuman. 9
+Bakuman. 10
+Bakuman. 11
+Bakuman. 12
+Bakuman. 13
+Bakuman. 14
+Bakuman. 15
+Bakuman. 16
+Bakuman. 17
+Bakuman. 18
+Bakuman. 19
+Bakuman. 20 end
+Bakusou Kyoudai Let's & Go! 2
+Bakusou Kyoudai Let's & Go! 4
+Bakusou Kyoudai Let's & Go! 5
+Bakusou Kyoudai Let's & Go! 6
+Bakusou Kyoudai Let's & Go! 7
+Bakusou Kyoudai Let's & Go! 9
+Bakusou Kyoudai Let's & Go! 10
+Bakusou Kyoudai Let's & Go! 11
+Bakuten Shoot Beyblade 3
+Bakuten Shoot Beyblade 4
+Bambino! Secondo 8
+Barakamon 1
+Barakamon 2
+Barakamon 3
+Barakamon 4
+Barakamon 5
+Barakamon 6
+Barakamon 7
+Barakamon 8
+Barakamon 9
+Barakamon 10
+Barakamon 13
+Beck 34
+Beelzebub 1
+Beelzebub 2
+Beelzebub 3
+Beelzebub 4
+Beelzebub 5
+Beelzebub 6
+Beelzebub 7
+Beelzebub 8
+Beelzebub 9
+Beelzebub 10
+Beelzebub 11
+Beelzebub 12
+Beelzebub 13
+Beelzebub 14
+Beelzebub 15
+Beelzebub 16
+Beelzebub 17
+Beelzebub 18
+Beelzebub 19
+Beelzebub 20
+Beelzebub 21
+Beelzebub 22
+Beelzebub 23
+Beelzebub 24
+Beelzebub 25
+Beelzebub 26
+Beelzebub 27
+Beelzebub 28 end
+Birdmen 1
+Blade of Immortal 18
+BLAME! 1
+BLAME! 2
+BLAME! 3
+BLAME! 4
+BLAME! 5
+BLAME! 6
+BLAME! 7
+BLAME! 8
+BLAME! 9
+BLAME! 10 end
+BLEACH 1
+BLEACH 2
+BLEACH 3
+BLEACH 4
+BLEACH 5
+BLEACH 36
+BLEACH 37
+BLEACH 41
+Blood Alone 1
+Blood Alone 3
+Blood Alone 4
+Bloody Monday 2
+Bloody Monday 8
+Bloody Monday 9
+Bloody Monday 10
+Bloody Monday 11 end
+Bloody Monday Season 2: Pandora no Hako 1
+Bloody Monday Season 2: Pandora no Hako 2
+Bloody Monday Season 2: Pandora no Hako 3
+Bloody Monday Season 2: Pandora no Hako 4
+Bloody Monday Last Season 1
+Bloody Monday Last Season 2
+Bloody Monday Last Season 3
+Blue Giant 1
+Blue Giant 2
+Blue Giant 3
+Blue Giant 4
+Blue Giant 5
+Blue Giant 6
+Blue Giant 7
+Boku no Hero Academia 1
+Brave 10 1
+Brave 10 2
+Brave 10 3
+Brave 10 4
+Brave 10 5
+Brave 10 6
+Brave 10 7
+Brave 10 8 end
+Break Blade 2
+Break Shot Premium 2
+BTOOOM! 1
+BTOOOM! 2
+BTOOOM! 3
+BTOOOM! 4
+BTOOOM! 5
+BTOOOM! 6
+Busou Renkin 5
+Busou Renkin 6
+Busou Renkin 9
+Canvas 2: Nijiiro no Sketch 3
+Card Captor Sakura 1
+Captain Tsubasa Premium 1
+Captain Tsubasa Premium 8
+Chimpui 1
+Chimpui 4
+Chou Dokyuu Shoujo 4946 4 (Super Dreadnought Girl)
+City 1
+Claymore 17
+CMB 21
+Code Breaker 1
+Code Breaker 2
+Code Breaker 3
+Code Breaker 4
+Code Breaker 5
+Code Breaker 6
+Code Breaker 7
+Code Breaker 8
+Code Breaker 9
+Code Breaker 10
+Code Breaker 11
+Code Breaker 12
+Code Breaker 13
+Code Breaker 14
+Code Breaker 15
+Code Breaker 16
+Code Breaker 17
+Code Breaker 18
+Crayon Shinchan 11
+Crayon Shinchan 13
+Crayon Shinchan 15
+Crayon Shinchan 24
+Crayon Shinchan Komik Permainan 3
+Crayon Shinchan Movie: The Adult Empire Strikes Back
+Croket! 2
+Croket! 3
+Croket! 4
+Croket! 5
+Croket! 6
+Croket! 7
+Croket! 8
+Croket! 9
+Croket! 10
+Croket! 12
+Croket! 13
+Croket! 15 end
+Crows 12
+Crows 14
+Crows 18
+Crows 19
+Crows 22
+Crush Gear Turbo 1
+Crush Gear Turbo 3
+Crush Gear Turbo 4
+Cyborg Kuro-chan 1
+D-LIVE!! 1
+D-LIVE!! 2
+D-LIVE!! 3
+D-LIVE!! 4
+D-LIVE!! 5
+D-LIVE!! 6
+D-LIVE!! 7
+D-LIVE!! 8
+D-LIVE!! 9
+D-LIVE!! 10
+D-LIVE!! 11
+D-LIVE!! 12
+D-LIVE!! 13
+D-LIVE!! 14
+D-LIVE!! 15 end
+D.Gray-man 1
+D.Gray-man 2
+D.Gray-man 3
+D.Gray-man 4
+D.Gray-man 5
+D.Gray-man 6
+D.Gray-man 7
+D.Gray-man 8
+Dandelion 2
+Dansai Bunri no Crime Edge 1
+Dansai Bunri no Crime Edge 2
+Dansai Bunri no Crime Edge 3
+Dansai Bunri no Crime Edge 4
+Dansai Bunri no Crime Edge 5
+Dansai Bunri no Crime Edge 6
+Dansai Bunri no Crime Edge 7
+Dansai Bunri no Crime Edge 8
+Dansai Bunri no Crime Edge 9
+Dansai Bunri no Crime Edge 10
+Dansai Bunri no Crime Edge 11 end
+Death Note 1
+Death Note 2
+Death Note 3
+Death Note 5
+Death Note 6
+Death Note 7
+Death Note 8
+Death Note 9
+Death Note 10
+Death Note 11
+Death Note 12 end
+Denpa Kyoushi 1
+Denpa Kyoushi 2
+Denpa Kyoushi 3
+Denpa Kyoushi 4
+Denpa Kyoushi 5
+Densha Otoko 2
+Diamond no Ace 1
+Dobinson Hyouryuuki
+Dorabase 10
+Dorabase 20
+Dorabase 23
+Doraemon #0
+Doraemon (old release) 1
+Doraemon (old release) 4
+Doraemon (old release) 6
+Doraemon (old release) 8
+Doraemon (old release) 10
+Doraemon (old release) 12
+Doraemon (old release) 18
+Doraemon (old release) 30
+Doraemon (old release) 31
+Doraemon (old release) 33
+Doraemon (old release) 35
+Doraemon (old release) 37
+Doraemon (old release) 38
+Doraemon (old release) 40
+Doraemon (old release) 41
+Doraemon (old release) 42
+Doraemon (old release) 45
+Doraemon (new release) 9
+Doraemon (new release) 22
+Doraemon Bunkouban - Robot-hen
+Doraemon Daichounen 8
+Doraemon Daichounen (new release) 1
+Doraemon Daichounen (new release) 2
+Doraemon Monogatari: Fujiko F. Fujio-sensei no Senaka
+Doraemon - Nobita no Uchuu Kaitakushi (Jo/First)
+Doraemon: Saishin Himitsu Dougu Daijiten
+Doraemon Comic Quiz 4
+Doraemon no Gakushu Series - Menseki Taiseki ga Wakaru
+Doraemon no Kuruma-Isu no Hon (oneshoot)
+Dou Nannyo!? (oneshoot) (Lovely Change)
+Double Baby (oneshot) (Penguin Summer)
+Dragon Ball 4
+Durarara!! 2
+Durarara!!: Saikai-hen 1
+Eiga Crayon Shin-chan: Kanzen Comic Arashi wo Yobu Mouretsu! Otona Teikoku no Gyakushu
+Enen no Shoubotai 1 (Fire Force)
+Ergo Proxy 1
+Ergo Proxy 2 end
+Eyeshield 21 1
+Eyeshield 21 2
+Eyeshield 21 3
+Eyeshield 21 4
+Eyeshield 21 5
+Eyeshield 21 6
+Eyeshield 21 7
+Eyeshield 21 8
+Eyeshield 21 9
+Eyeshield 21 10
+Eyeshield 21 11
+Eyeshield 21 12
+Eyeshield 21 13
+Eyeshield 21 14
+Eyeshield 21 15
+Eyeshield 21 16
+Eyeshield 21 17
+Eyeshield 21 18
+Eyeshield 21 19
+Eyeshield 21 20
+Eyeshield 21 21
+Eyeshield 21 22
+Eyeshield 21 23
+Eyeshield 21 24
+Eyeshield 21 25
+Eyeshield 21 26
+Eyeshield 21 27
+Eyeshield 21 28
+Eyeshield 21 29
+Eyeshield 21 30
+Eyeshield 21 31
+Eyeshield 21 32
+Eyeshield 21 33
+Eyeshield 21 34
+Eyeshield 21 35
+Eyeshield 21 36 end
+Fairy Tail 3
+Fairy Tail 10
+Fairy Tail 14
+Fairy Tail 15
+Fairy Tail 16
+Fairy Tail 27
+Fairy Tail 45
+Flying Witch 1
+Flying Witch 2
+Flying Witch 3
+Fukusuke 1
+Fukusuke 2 end
+Fullmetal Alchemist 2
+Fullmetal Alchemist 4
+Fullmetal Alchemist 6
+Fullmetal Alchemist 9
+Fullmetal Alchemist 12
+Fullmetal Alchemist 15
+Fullmetal Alchemist 17
+Fullmetal Alchemist 18
+Fullmetal Alchemist 19
+Fullmetal Alchemist 20
+Fullmetal Alchemist 21
+Fullmetal Alchemist 22
+Fullmetal Alchemist 23
+Fullmetal Alchemist 24
+Fullmetal Alchemist 25
+Fullmetal Alchemist 26
+Fullmetal Alchemist 27 end
+Fullmetal Alchemist Kanzenban 1
+Fullmetal Alchemist Kanzenban 2
+Fullmetal Alchemist Kanzenban 3
+Fullmetal Alchemist Kanzenban 4
+Fullmetal Alchemist Kanzenban 5
+Fullmetal Alchemist Kanzenban 6
+Fullmetal Alchemist Kanzenban 7
+Fullmetal Alchemist Kanzenban 8
+Fullmetal Alchemist Kanzenban 9
+Fullmetal Alchemist Kanzenban 10
+Fullmetal Alchemist Kanzenban 11
+Fumetsu no Anata e 1
+Fumetsu no Anata e 2
+Futatsu no Spica 4
+Gamaran 1
+Gegege no Kitarou: Youkai Sen Monogatari 1
+Gegege no Kitarou: Youkai Sen Monogatari 2
+Gegege no Kitarou: Youkai Sen Monogatari 3
+Gegege no Kitarou: Youkai Sen Monogatari 4
+Gegege no Kitarou: Youkai Sen Monogatari 5
+Gegege no Kitarou: Youkai Sen Monogatari 6
+Gekkan Shoujo Nozaki-kun 1
+Gekkan Shoujo Nozaki-kun 2
+Gekkan Shoujo Nozaki-kun 3
+Gekkan Shoujo Nozaki-kun 4
+Gekkan Shoujo Nozaki-kun 5
+Gekkan Shoujo Nozaki-kun 6
+Gekkan Shoujo Nozaki-kun 7
+Gin no Saji 1
+Gin no Saji 2
+Gin no Saji 3
+Gin no Saji 4
+Gin no Saji 5
+Gin no Saji 6
+Gin no Saji 7
+Gin no Saji 8
+Gin no Saji 9
+Gin no Saji 10
+Gin no Saji 11
+Gin no Saji 12
+Gin no Saji 13
+Gin no Saji 14
+Godhand Teru 35
+Godhand Teru 37
+Godhand Teru 38
+Gon 1
+Gon 2
+Gon 3
+Gon 4
+Gon 5
+Gon 6
+Gon 7 end
+Great Teacher Onizuka 5
+Great Teacher Onizuka 8
+Great Teacher Onizuka 12
+Great Teacher Onizuka 13
+Green Blood 1
+Green Blood 2
+Green Blood 3
+GTO:  Shounan Days 3
+Gundam Seed 2
+Gundam Wing 1
+Gundam Wing 2
+Gundam Wing 3 end
+Gundam Wing: Battle field of Pacifist (oneshot)
+H2 1
+Hadashi no Gen 1
+Hajime no Ippo 33
+Hajime no Ippo 86
+Hajimete no Aku 2
+Hajimete no Aku 6
+Hajimete no Aku 7
+Hajimete no Aku 8
+Hajimete no Aku 9
+Hajimete no Aku 10
+Hajimete no Aku 11
+Hanayamata 4
+Hanayamata 5
+Haru no Tobira (Spring) (oneshot)
+Hayate no Gotoku 3
+Hayate no Gotoku 4
+Hayate no Gotoku 5
+Hayate no Gotoku 6
+Hayate no Gotoku 7
+Hayate no Gotoku 8
+Hayate no Gotoku 9
+Hayate no Gotoku 10
+Hayate no Gotoku 11
+Hayate no Gotoku 12
+Hayate no Gotoku 13
+Hayate no Gotoku 14
+Hayate no Gotoku 15
+Hayate no Gotoku 16
+Hayate no Gotoku 17
+Hayate no Gotoku 18
+Hayate no Gotoku 19
+Hayate no Gotoku 20
+Hayate no Gotoku 21
+Hayate no Gotoku 22
+Hayate no Gotoku 23
+Hayate no Gotoku 24
+Hayate no Gotoku 25
+Hayate no Gotoku 26
+Hayate no Gotoku 27
+Hayate no Gotoku 28
+Hayate no Gotoku 29
+Hayate no Gotoku 30
+Hayate no Gotoku 31
+Hayate no Gotoku 34
+Hayate no Gotoku 41
+High Jump! (oneshot) (Harujan)
+Hikaru no Go 9
+Hikaru no Go 10
+Hikaru no Go 13
+Hikaru no Go 14
+Hikaru no Go 17
+Hikaru no Go 21
+Hikaru no Go 23
+Haikyuu! 1
+Hanamaru Company (Mark and Mari) (oneshot)
+Happy Happy Clover 1
+Happy Happy Clover 2
+Happy Happy Clover 3
+Highschool of the Dead 1
+Highschool of the Dead 2
+Highschool of the Dead 3
+Highschool of the Dead 4
+Highschool of the Dead 5
+Highschool of the Dead 6
+Hokuto no Ken 1
+Homunculus 11
+Houkago Ponytail (oneshot) (After School x Ponytail)
+HUNTER×HUNTER 1
+HUNTER×HUNTER 2
+HUNTER×HUNTER 3
+HUNTER×HUNTER 4
+HUNTER×HUNTER 5
+HUNTER×HUNTER 6
+HUNTER×HUNTER 7
+HUNTER×HUNTER 8
+HUNTER×HUNTER 9
+HUNTER×HUNTER 10
+HUNTER×HUNTER 11
+HUNTER×HUNTER 12
+HUNTER×HUNTER 13
+HUNTER×HUNTER 14
+HUNTER×HUNTER 15
+HUNTER×HUNTER 16
+HUNTER×HUNTER 17
+HUNTER×HUNTER 18
+HUNTER×HUNTER 19
+HUNTER×HUNTER 20
+HUNTER×HUNTER 21
+HUNTER×HUNTER 22
+HUNTER×HUNTER 23
+HUNTER×HUNTER 24
+HUNTER×HUNTER 25
+HUNTER×HUNTER 26
+HUNTER×HUNTER 27
+Hyakko 1
+Hyakko 2
+Hyakko 3
+I Am A Hero 1
+I Am A Hero 5
+Imawa no Kuni no Alice 1
+Imawa no Kuni no Alice 2
+Imawa no Kuni no Alice 3
+Imawa no Kuni no Alice 4
+Imawa no Kuni no Alice 5
+Imawa no Kuni no Alice 6
+Imawa no Kuni no Alice 7
+Imawa no Kuni no Alice 8
+Imawa no Kuni no Alice 9
+Imawa no Kuni no Alice 10
+Imawa no Kuni no Alice 11
+Imawa no Kuni no Alice 12
+Imawa no Kuni no Alice 13
+Imawa no Kuni no Alice 14
+Imawa no Kuni no Alice 15
+Imawa no Kuni no Alice 16
+Imawa no Kuni no Alice 17
+Imawa no Kuni no Alice 18 end
+Imawa no Michi no Alice 1
+Imawa no Michi no Alice 2
+Imawa no Michi no Alice 3
+Imawa no Michi no Alice 4
+Inuyasha 13
+Jinja no Mori no Noraneko-kun (Love on the Run) (oneshot)
+Jormungand 7
+Juhou Kaikin! Hyde & Closer 1
+Juhou Kaikin! Hyde & Closer 2
+Juhou Kaikin! Hyde & Closer 3
+Juhou Kaikin! Hyde & Closer 4
+Juhou Kaikin! Hyde & Closer 5
+Juhou Kaikin! Hyde & Closer 6
+Jungle Kurobe (oneshot)
+K-ON! 1
+K-ON! 2
+K-ON! 3
+K-ON! college
+K-ON! highschool
+Kagetora 1
+Kagetora 2
+Kagetora 3
+Kagetora 4
+Kagetora 5
+Kagetora 8
+Kagetora 10
+Kagetora 11 end
+Kaichou wa Maid-sama! 1
+Kaichou wa Maid-sama! 2
+Kaichou wa Maid-sama! 3
+Kaichou wa Maid-sama! 4
+Kaichou wa Maid-sama! 5
+Kaichou wa Maid-sama! 6
+Kaichou wa Maid-sama! 8
+Kaichou wa Maid-sama! 9
+Kaichou wa Maid-sama! 10
+Kaichou wa Maid-sama! 11
+Kaichou wa Maid-sama! 12
+Kaichou wa Maid-sama! 13
+Kaichou wa Maid-sama! 14
+Kaichou wa Maid-sama! 15
+Kaichou wa Maid-sama! 16
+Kaichou wa Maid-sama! 17
+Kaichou wa Maid-sama! 18 end
+Kami no Shizuku 7
+Kami no Shizuku 13
+Kami no Shizuku 16
+Kami Nomi zo Shiru Sekai 1
+Kami Nomi zo Shiru Sekai 2
+Kami Nomi zo Shiru Sekai 3
+Kami Nomi zo Shiru Sekai 4
+Kami Nomi zo Shiru Sekai 5
+Kami Nomi zo Shiru Sekai 6
+Kami Nomi zo Shiru Sekai 7
+Kami Nomi zo Shiru Sekai 8
+Kami Nomi zo Shiru Sekai 9
+Kami Nomi zo Shiru Sekai 10
+Kami Nomi zo Shiru Sekai 11
+Kami Nomi zo Shiru Sekai 12
+Kami Nomi zo Shiru Sekai 13
+Kami Nomi zo Shiru Sekai 14
+Kami Nomi zo Shiru Sekai 15
+Kami Nomi zo Shiru Sekai 16
+Kami Nomi zo Shiru Sekai 17
+Kami Nomi zo Shiru Sekai 18
+Kami Nomi zo Shiru Sekai 19
+Kami Nomi zo Shiru Sekai 20
+Kami Nomi zo Shiru Sekai 21
+Kami Nomi zo Shiru Sekai 22
+Kami Nomi zo Shiru Sekai 23
+Kami Nomi zo Shiru Sekai 24
+Kami Nomi zo Shiru Sekai 25
+Kami Nomi zo Shiru Sekai 26 end
+Kamichama Karin 2
+Kamichama Karin 4
+Kamichama Karin chu! 1
+Kamichama Karin chu! 2
+Kamichama Karin chu! 3
+Kamichama Karin chu! 4
+Kanojo wa Uso wo Aishisugiteru 1
+Kanojo wa Uso wo Aishisugiteru 2
+Kanojo wa Uso wo Aishisugiteru 3
+Kanojo wa Uso wo Aishisugiteru 5
+Karakuri Circus 10
+Kariage-kun 54
+Katekyou Hitman Reborn! 1
+Katekyou Hitman Reborn! 2
+Katekyou Hitman Reborn! 3
+Katekyou Hitman Reborn! 4
+Katekyou Hitman Reborn! 5
+Katekyou Hitman Reborn! 6
+Katekyou Hitman Reborn! 7
+Katekyou Hitman Reborn! 8
+Katekyou Hitman Reborn! 9
+Katekyou Hitman Reborn! 10
+Katekyou Hitman Reborn! 15
+Katekyou Hitman Reborn! 19
+Kekkaishi 1
+Kekkaishi 2
+Kekkaishi 3
+Kekkaishi 4
+Kekkaishi 5
+Kekkaishi 7
+Kekkaishi 9
+Kekkaishi 15
+Kekkaishi 30
+Kekkaishi 32
+Kenji (Bunkouban) 10
+Kenji (Bunkouban) 11
+Kenji (Bunkouban) 12
+Keroro Gunsou 4
+Keroro Gunsou 13
+Keroro Gunsou 16
+Keroro Gunsou 17
+Keroro Gunsou 22
+Keroro Gunsou 23
+Keroro Gunsou Green
+Keroro Gunsou Pink
+Keroro Gunsou Red
+Kiba no Tabishounin 2 (The Arms Peddler)
+Kimi ni Todoke 1
+Kimi ni Todoke 2
+Kimi ni Todoke 3
+Kimi ni Todoke 5
+Kimi ni Todoke 7
+Kimi ni Todoke 8
+Kimi ni Todoke 9
+Kimi ni Todoke 10
+Kimi ni Todoke 11
+Kimi ni Todoke 12
+Kimi ni Todoke 13
+Kimi ni Todoke 14
+Kimi ni Todoke 15
+Kimi ni Todoke 16
+Kimi no Iru Machi 3
+Kimi no Iru Machi 4
+Kimi no Iru Machi 8
+Kimi to Himitsu no Hanazono 1 / Our Secret Garden
+Kimi to Himitsu no Hanazono 2
+Kimi to Himitsu no Hanazono 3 end
+Kimi wa Sora no Subete 2 (You Are My World)
+Kimi wa Sora no Subete 3
+Kindaichi Shounen no Jikenbou 20th Anniversary Series 2
+Kindaichi Shounen no Jikenbou Case 2
+Kindaichi Shounen no Jikenbou Kanzenban 6
+Kindaichi Shounen no Jikenbou Kanzenban 7
+Kindaichi Shounen no Jikenbou Kanzenban 8
+King of Idol 1
+King of Idol 2
+King of Idol 3
+King of Idol 4
+King of Idol 5
+King of Idol 6 end
+Kanojo wa Uso wo Aishisugiteru 1
+Kanojo wa Uso wo Aishisugiteru 2
+Kanojo wa Uso wo Aishisugiteru 3
+Kanojo wa Uso wo Aishisugiteru 5
+Kirikiritei no Brown Sensei / Onsen Paradise 6
+Kiseijuu 1
+Kiseijuu 3
+Koi wa Ameagari no You ni 1 (After The Rain)
+Koi wa Ameagari no You ni 2
+Koi wa Ameagari no You ni 3
+Koisuru Koto no ha (oneshoot) (Poetry of Love)
+Koufuku Graffiti 1
+Koufuku Graffiti 2
+Koufuku Graffiti 3
+Koufuku Graffiti 4
+Koufuku Graffiti 5
+Kuroko no Basket 1
+Kuroko no Basket 2
+Kuroko no Basket 3
+Kuroko no Basket 6
+Kuroko no Basket 7
+Kuroko no Basket 8
+Kurosagi 5 (The Black Swindler)
+Kurozakuro 5
+Kotonoha no Niwa (oneshot)
+Limit 1
+Let's Akumateku Kyoushitsu (oneshoot) (My Devilish Love)
+Magi: The Labyrinth of Magic 1
+Magi: The Labyrinth of Magic 2
+Magi: The Labyrinth of Magic 3
+Magi: The Labyrinth of Magic 4
+Magi: The Labyrinth of Magic 5
+Magi: The Labyrinth of Magic 6
+Magi: The Labyrinth of Magic 7
+Magi: The Labyrinth of Magic 8
+Magi: The Labyrinth of Magic 9
+Magi: The Labyrinth of Magic 10
+Magi: The Labyrinth of Magic 11
+Magi: The Labyrinth of Magic 12
+Magi: The Labyrinth of Magic 13
+Magi: The Labyrinth of Magic 14
+Magi: The Labyrinth of Magic 15
+Magi: The Labyrinth of Magic 16
+Magi: The Labyrinth of Magic 18
+Mahou no Iroha 1
+Mahou no Iroha 3 end
+Mahoutsukai no Yome 1
+Mahoutsukai no Yome 2
+Mahoutsukai no Yome 3
+Mahoutsukai no Yome 4
+Mahoutsukai no Yome 5
+Mahoutsukai no Yome 6
+Mahoutsukai no Yome 7
+Majin Tantei Neuro 2
+Majin Tantei Neuro 3
+Majin Tantei Neuro 4
+Majin Tantei Neuro 5
+Maoh: Juvenile Remix 3
+Maoh: Juvenile Remix 4
+Maoh: Juvenile Remix 5
+MÄR 1
+MÄR 2
+MÄR 3
+MÄR 7
+MÄR 12
+MÄR 14
+MÄR 15 end
+MÄR Omega 1
+MÄR Omega 2
+MÄR Omega 3
+MÄR Omega 4 end
+Maria Holic 1
+Maria Holic 2
+Maria Holic 3
+Meitantei Conan 1
+Meitantei Conan 13
+Meitantei Conan 20
+Meitantei Conan 31
+Meitantei Conan 35
+Meitantei Conan 40
+Meitantei Conan 41
+Meitantei Conan 43
+Meitantei Conan 47
+Meitantei Conan 52
+Meitantei Conan 53
+Meitantei Conan 54
+Meitantei Conan 55
+Meitantei Conan 56
+Meitantei Conan 57
+Meitantei Conan 59
+Meitantei Conan 60
+Meitantei Conan 62
+Meitantei Conan 63
+Meitantei Conan 64
+Meitantei Conan 65
+Meitantei Conan 66
+Meitantei Conan 67
+Meitantei Conan 68
+Meitantei Conan 69
+Meitantei Conan 70
+Meitantei Conan 71
+Meitantei Conan 72
+Meitantei Conan 73
+Meitantei Conan 74
+Meitantei Conan 75
+Meitantei Conan 76
+Meitantei Conan 77
+Meitantei Conan 90
+Meitantei Conan Super Digest Book 10+
+Meitantei Conan Super Digest Book 20+
+Meitantei Conan Super Digest Book 30+
+Meitantei Conan: Tokubetsu-hen 33
+Meitantei Conan: Tokubetsu-hen 35
+Midori no Hibi 4
+Midori no Hibi 5
+Midori no Hibi 6
+Midori no Hibi 7
+Midori no Hibi 8 end
+Mini 4WD Fighter V 1
+Mini 4WD Fighter V 2
+Mini 4WD Fighter V 3
+Mini 4WD Fighter V 4
+Mini 4WD Fighter V 5
+Mini 4WD Fighter V 7
+Mini 4WD Fighter V 8
+Mira Kuru 1
+Miracle Ball 1
+Miracle Ball 2
+Miracle Ball 3
+Miracle Ball 4
+Miracle Ball 5
+Mirai Nikki 1
+Mirai Nikki 2
+Mirai Nikki 3
+Mirai Nikki 5
+Mirai Nikki 8
+Montage 1
+Montage 2
+Montage 3
+Montage 4
+Montage 5
+Mugen no Genkan no Yamato 2
+Mujirushi
+Muryojoku Girl 1
+Muryojoku Girl 2 end
+Muzukashikutte Amai Koto (oneshoot) (A Bitter Sweet Thing)
+My Clumsy Boy! 2 end
+Nanairo Miracle 6
+Nanatsu no Taizai 1
+Naruto 19
+Narutoya Ramen Road 1
+Narutoya Ramen Road 2
+Narutoya Ramen Road 3
+Narutoya Ramen Road 7 end
+Natsume Yuujinchou 2
+Nekogami Yaoyorozu 1
+Neon Genesis Evangelion 2
+Neon Genesis Evangelion 3
+Neon Genesis Evangelion 6
+Neon Genesis Evangelion 7
+Neon Genesis Evangelion 8
+Neon Genesis Evangelion 9
+Neon Genesis Evangelion the Iron Maiden 2nd 1
+Neon Genesis Evangelion the Iron Maiden 2nd 2
+Neon Genesis Evangelion the Iron Maiden 2nd 3
+Neon Genesis Evangelion the Iron Maiden 2nd 4
+New Comic Bomber 8
+New Little Ghost Q-taro 3
+Nijiiro Tougarashi Bunkouban edition (Natane) 2
+Ninja Hattori-kun 9
+Nisekoi 8
+Nisekoi 13
+Nisekoi 15
+Nisekoi 17
+Nobunaga no Chef 4
+Nodame Cantabile 1
+Nodame Cantabile 4
+Nodame Cantabile 18
+Nodame Cantabile 21
+Nodame Cantabile 25
+Noragami 2
+Nyan Koi! 1
+Nurarihyon no Mago 1
+Nurarihyon no Mago 2
+Nurarihyon no Mago 3
+Nurarihyon no Mago 4
+Nurarihyon no Mago 5
+Nurarihyon no Mago 6
+One Piece 1
+One Piece 2
+One Piece 3
+One Piece 4
+One Piece 5
+One Piece 6
+One Piece 7
+One Piece 8
+One Piece 9
+One Piece 10
+One Piece 11
+One Piece 12
+One Piece 13
+One Piece 40
+One Piece 47
+One Piece 48
+One Piece 55
+One Piece 56
+One Piece 57
+One Piece 70
+One Punch Man 1
+One Punch Man 3
+One Punch Man 4
+One Punch Man 5
+One Punch Man 7
+Orange 1
+Orange 3
+Ore Monogatari 1
+Ore Monogatari 2
+Ore Monogatari 3
+Ore Monogatari 4
+Ore Monogatari 5
+Ore Monogatari 6
+Ore Monogatari 7
+Ore Monogatari 8
+Ore Monogatari 9
+Ore Monogatari 10
+Ore Monogatari 11
+Ore Monogatari 12
+Ore Monogatari 13 end
+Ore no Suki na Ko ga Brocon Sugiru (oneshoot) (Brother Complex' Girls!!)
+Otoboke Kachou 25
+Otoboke Kachou 26
+Otoyomegatari 3
+Ousama-tachi no Viking 1
+Over Drive 1
+Over Drive 4
+Piano no Mori 4
+Planetes 1
+Planetes 2
+Planetes 3
+Planetes 4 end
+Pluto 2
+Prizona6 2
+Psycho-Pass: Kanshikan Tsunemori Akane 1
+QED 40
+QED 41
+Rainbow: Nisha Rokubou no Shichinin 1
+Rainbow: Nisha Rokubou no Shichinin 3
+Rainbow: Nisha Rokubou no Shichinin 4
+Rainbow: Nisha Rokubou no Shichinin 5
+Rave 6
+Rave 15
+Rave 23
+Rave 35
+Rave: Plue Inu no Nikki 2
+Rave: Plue Inu no Nikki 3
+Rin 1
+Rin 2
+Rin 3
+Rin 4
+Rin 5
+Rin 6
+Rin 7
+Rin 8
+Rin 9
+Rin 10
+Rin 11
+Rin 12
+Rin 13
+Rin 14 end
+Robot Boys 1
+Robot Boys 2
+Robot Boys 3 end
+Rockman.EXE 1
+Rough 6
+Rurouni Kenshin 1
+Rurouni Kenshin 2
+Rurouni Kenshin 3
+Rurouni Kenshin 4
+Rurouni Kenshin 5
+Rurouni Kenshin 6
+Rurouni Kenshin 7
+Rurouni Kenshin 8
+Rurouni Kenshin 9
+Rurouni Kenshin 10
+Rurouni Kenshin 11
+Rurouni Kenshin 12
+Rurouni Kenshin 13
+Rurouni Kenshin 14
+Rurouni Kenshin 15
+Rurouni Kenshin 16
+Rurouni Kenshin 17
+Rurouni Kenshin 18
+Rurouni Kenshin 19
+Rurouni Kenshin 22
+Rurouni Kenshin 23
+Rurouni Kenshin 24
+Rurouni Kenshin 25
+Rurouni Kenshin 26
+Rurouni Kenshin 27
+Rurouni Kenshin 28 end
+Sabagebu! 2
+Sabagebu! 3
+Sabagebu! 4
+Saijou no Meii 7 (The Best Skilled Surgeon)
+Saike Matashitemo 1
+Saike Matashitemo 2
+Saike Matashitemo 3
+Saike Matashitemo 4
+Saike Matashitemo 5
+Saike Matashitemo 6
+Saike Matashitemo 7
+Saike Matashitemo 8
+Saike Matashitemo 9
+Saike Matashitemo 10
+Saike Matashitemo 11
+Sakamichi no Apollon 1
+Sakamichi no Apollon 2
+Sakamichi no Apollon 3
+Sakamichi no Apollon 4
+Sakamichi no Apollon 5
+Sakamichi no Apollon 6
+Sakamichi no Apollon 7
+Sakamichi no Apollon 8
+Sakamichi no Apollon 9 end
+Sakamichi no Apollon bonus track
+Sakamoto desu ga? 1
+Sakamoto desu ga? 2
+Sakura Wars 1
+San-nen Z-gumi Pocchi-sensei (oneshot)
+Sanzoku Ou 4
+Sanzoku Ou 8
+Sanzoku Ou 9
+Sanzoku Ou 10
+Sanzoku Ou 11
+Seikan Bridge 1
+Sekai Seifuku Honey (Super Sweet Honey) (oneshot)
+Sengoku Basara: Ranseranbu 1
+Sengoku Basara: Ranseranbu 2
+Sengoku Basara: Ranseranbu 3 end
+Shaman King 1
+Shaman King 2
+Shaman King 3
+Shaman King 4
+Shaman King 6
+Shaman King 7
+Shaman King 8
+Shaman King 9
+Shaman King 10
+Shaman King 11
+Shaman King 12
+Shaman King 13
+Shaman King 14
+Shaman King 15
+Shaman King 16
+Shaman King 17
+Shaman King 18
+Shaman King 19
+Shaman King 20
+Shaman King 21
+Shaman King 22
+Shaman King 23
+Shaman King 24
+Shaman King 25
+Shaman King 26
+Shaman King 27
+Shaman King 28
+Shaman King 29
+Shaman King 30
+Shaman King 31
+Shaman King 32 end
+Shigatsu wa Kimi no Uso 1
+Shigatsu wa Kimi no Uso 2
+Shigatsu wa Kimi no Uso 3
+Shin Chuuka Ichiban 4
+Shin Chuuka Ichiban 9
+Shin Chuuka Ichiban 11
+Shin Crayon Shin-chan 2
+Shin Kobochan 25
+Shin Kobochan 29
+Shin Kobochan 30
+Shin Kurosagi 2
+Shin Tekken Chinmi (Premium) 3
+Shin Tekken Chinmi (Premium) 7
+Shin Tekken Chinmi (Premium) 9
+Shingeki no Kyojin 1
+Shingeki no Kyojin 2
+Shingeki no Kyojin 3
+Shingeki no Kyojin 4
+Shingeki no Kyojin 5
+Shingeki no Kyojin 6
+Shingeki no Kyojin 7
+Shingeki no Kyojin 8
+Shingeki no Kyojin 9
+Shingeki no Kyojin 16
+Shingeki no Kyojin 17
+Shingeki no Kyojin 18
+Shingeki no Kyojin: Before The Fall 1
+Shinrei Tantei Yakumo 1
+Shinrei Tantei Yakumo 2
+Shinrei Tantei Yakumo 3
+Shinrei Tantei Yakumo 4
+Shinrei Tantei Yakumo 5
+Shinrei Tantei Yakumo 8
+Shinrei Tantei Yakumo 9
+Shinrei Tantei Yakumo 10
+Shinrei Tantei Yakumo 11
+Shitei Bouryoku Shoujo Shiomi-chan 1
+Shougakusei no Himitsu 1 (Rahasia Anak SD)
+Shougakusei no Himitsu 2
+Shogakukan-ban Gakushuu Manga Jinbutsukan: Fujiko F. Fujio
+Slam Dunk Deluxe 4
+Slam Dunk Deluxe 15
+Sket Dance 1
+Sket Dance 2
+Sket Dance 3
+Sket Dance 4
+Sket Dance 5
+Sket Dance 6
+Sket Dance 7
+Sket Dance 8
+Sket Dance 11
+Sket Dance 14
+Sket Dance 15
+Sket Dance 20
+Skip Beat ! 32
+Smash! 2
+Smash! 4
+Solanin 1
+Solanin 2 end
+Sora Yori mo Takaku (Higher Than Sky) (oneshot)
+Soul Eater 17
+Soul Eater 23
+Soul Eater 25 end
+Sugars☆ (oneshoot)
+Takkoku!!! 1
+Takkoku!!! 2
+Takkoku!!! 3
+Takkoku!!! 4
+Takkoku!!! 5
+Takkoku!!! 6 end
+Tantei Gakuen Q 2
+Tantei Gakuen Q 9
+Tantei Gakuen Q 10
+Tantei Gakuen Q 16
+Tantei Gakuen Q 20
+Tantei Gakuen Q 22
+Tegami Bachi 2
+Tegami Bachi 3
+Tekken Chinmi Kanzenban 15
+Tekken Chinmi Legends 1
+Tekken Chinmi Legends 2
+Tekken Chinmi Legends 6
+Tekken Chinmi Legends 10
+Ten Kara no Okurimono (The Gift from heaven) (oneshot)
+Tetsuwan Birdy 5
+Tezuka Gakuen (oneshot)
+The Big O 1
+The Doraemons' Adventure 4
+The Doraemons' Adventure 5
+The Doraemons Special 1
+The Doraemons Special 2
+The Doraemons Special 3
+The Doraemons Special 4
+The Doraemons Special 7
+The Doraemons Special 9
+The Doraemons Special 11
+The Doraemons Special 12
+The Doraemons Special 13
+The Law of Ueki 1
+The Law of Ueki 2
+The Law of Ueki 3
+The Law of Ueki 4
+The Law of Ueki 5
+The Law of Ueki 6
+The Law of Ueki 7
+The Law of Ueki 8
+The Law of Ueki 9
+The Law of Ueki 10
+The Law of Ueki 11
+The Law of Ueki 12
+The Law of Ueki 13
+The Law of Ueki 14
+The Law of Ueki 15
+The Law of Ueki 16 end
+The Law of Ueki Plus 1
+The Law of Ueki Plus 2
+The Law of Ueki Plus 3
+The Law of Ueki Plus 4
+The Law of Ueki Plus 5 end
+Tokyuu!! 4
+Tokyuu!! 7
+Tokyuu!! 8
+Tokyuu!! 10
+Tokyuu!! 14
+Tokyuu!! 15
+Tokyuu!! 16
+Tokyuu!! 18
+Tokubetsu na Mainichi (eromanga)
+Tonari no Seki-kun 1
+Tonari no Seki-kun 2
+Tonari no Seki-kun 3
+Tonari no Seki-kun 4
+Tonari no Seki-kun 5
+Tonari no Seki-kun 6
+Tonari no Seki-kun 7
+Tonari no Seki-kun 8
+Tonari no Seki-kun 9
+Tonari no Kashiwagi-kun 2
+Tonari no Kashiwagi-kun 3
+Tonari no Kashiwagi-kun 4
+Tonari no Kashiwagi-kun 5
+Tonari no Kashiwagi-kun 6
+Tonari no Kashiwagi-kun 7
+Tongari Boushi no Atelier 1
+Tongari Boushi no Atelier 2
+Tongari Boushi no Atelier 3
+Tongari Boushi no Atelier 4
+Tongari Boushi no Atelier 5
+Toradora! 1
+Toriko 1
+Toriko 2
+Toriko 3
+Toriko 4
+Toriko 5
+Toriko 6
+Touch 1
+Touch 2
+Touch 3
+Touch 5
+Touch 6
+Touch 7
+Touch 8
+Touch 13
+Touch 15
+Touch 16
+Touch 17
+Touch 18
+Touch 19
+Touch 20
+Touch 21
+Touch 22
+Touch 23
+Touch 24
+Touch 25
+Touch 26
+Toto 5
+Urusei Yatsura 28
+Urusei Yatsura 33
+Vinland Saga 1
+Vinland Saga 2
+Vinland Saga 3
+Vinland Saga 4
+Vinland Saga 5
+Vinland Saga 6
+Vinland Saga 7
+Vinland Saga 8
+Vinland Saga 9
+Vinland Saga 10
+Vinland Saga 11
+Vinland Saga 12
+Wagahai Yome de Aru (oneshot) (I still love you)
+Wild Life 2
+Wild Life 3
+Wild Life 4
+Wild Life 5
+Wild Life 7
+Wild Life 8
+Wild Life 9
+Wild Life 11
+Wild Life 13
+Wild Life 14
+Wild Life 15
+Wild Life 18
+Wild Life 19
+Wild Life 20 
+Wild Life 21
+Wild Life 22
+Wild Life 23
+Wild Life 24
+Wild Life 25
+Wild Life 26
+Wild Life 27 end
+Wonderland 1
+Yaiba 5
+Yaiba 6
+Yaiba 9
+Yaiba 10
+Yaiba 11
+Yaiba 12
+Yaiba 13
+Yaiba 14
+Yaiba 15
+Yaiba 16
+Yaiba 17
+Yaiba 18
+Yaiba 19
+Yaiba 20
+Yaiba 21
+Yaiba 22
+Yaiba 23
+Yaiba 24 end
+Yakitate!! Japan 1
+Yakitate!! Japan 2
+Yakitate!! Japan 3
+Yakitate!! Japan 4
+Yakitate!! Japan 5
+Yakitate!! Japan 6
+Yakitate!! Japan 7
+Yakitate!! Japan 8
+Yakitate!! Japan 9
+Yakitate!! Japan 11
+Yakitate!! Japan 12
+Yakitate!! Japan 13
+Yakitate!! Japan 15
+Yakitate!! Japan 16
+Yakitate!! Japan 18
+Yakitate!! Japan 19
+Yakitate!! Japan 20
+Yakitate!! Japan 25
+Yakusoku no Neverland 1
+Yakusoku no Neverland 2
+Yamada to Nananin no Majyo 1
+Yamada to Nananin no Majyo 2
+Yamada to Nananin no Majyo 3
+Yomawari Sensei 1
+Yomawari Sensei 2
+Yesterday, Yes a day (onsehot)
+Yoru wa Mijikashi Arukeyo Otome 2
+Yoru wa Mijikashi Arukeyo Otome 3
+Yotsuba&! 1
+Yotsuba&! 2
+Yotsuba&! 3
+Yotsuba&! 4
+Yotsuba&! 5
+Yotsuba&! 6
+Yotsuba&! 7
+Yotsuba&! 8
+Yotsuba&! 9
+Yotsuba&! 10
+Yotsuba&! 11
+Yotsuba&! 12
+Yotsuba&! 14
+Youkai Watch 1
+Youkai Watch 2
+Yozakura Quartet 1
+Yozakura Quartet 2
+Yozakura Quartet 5
+Yozakura Quartet 7
+Yozakura Quartet 9
+Yu Gi Oh! Bunkouban 1
+Yu Yu Hakusho 16
+Yu Yu Hakusho 18
+Yugo The Negotiator 30 In Toyako Summit (1/2)
+Yugo The Negotiator 33 In Philiphines ODA (2/3)
+Yuki ni Tsubasa 1
+Yuki ni Tsubasa 2
+Yuki ni Tsubasa 3
+Yumekui Merry 10
+Zero no Tsukaima 2
+Zero no Tsukaima 3
+Zero no Tsukaima 7
+Zettai Fukujuu Idol (Lovely Idol)
+Zettai Karen Children 2
+Zettai Karen Children 3
+Zettai Karen Children 4
+Zettai Karen Children 6
+Zettai Karen Children 18
+Zipang 1
+Zipang 2
+Zipang 6
+Zipang 9
+Zipang 11
+Zipang 13
+Zipang 19
+Zoids 1
