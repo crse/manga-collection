@@ -1,7 +1,9 @@
+21 Emon 1
 21st Century Boys 1
 3x3 Eyes 25
 3x3 Eyes 37
 3-gatsu no Yume (oneshoot) (A Dream in March)
+Adagio (oneshoot)
 Akihabara@Deep 5
 Air Gear 1
 Air Gear 2
@@ -64,6 +66,10 @@ Ansatsu Kyoushitsu 7
 Ansatsu Kyoushitsu 8
 Ao no Exorcist 1
 Ao no Exorcist 2
+Aoi Honoo 4 (Blue Flame - Comic Bomber Early Days)
+Aoba Jitensha-ten 1
+Aoba Jitensha-ten 2
+Aoba Jitensha-ten 6 /20
 Arata Kangatari 1
 Arata Kangatari 2
 Arata Kangatari 3
@@ -74,6 +80,7 @@ Area D Ino no Ryouiki 1
 Aria 1
 Aria 2
 Aria 8
+Arms 13 /22
 Arslan Senki 1
 Azumanga Daioh 4
 Baby Dare Yori mo Kimi ga Suki (oneshot) (Baby, I love you more)
@@ -102,6 +109,7 @@ Bakusou Kyoudai Let's & Go! 4
 Bakusou Kyoudai Let's & Go! 5
 Bakusou Kyoudai Let's & Go! 6
 Bakusou Kyoudai Let's & Go! 7
+Bakusou Kyoudai Let's & Go! 8
 Bakusou Kyoudai Let's & Go! 9
 Bakusou Kyoudai Let's & Go! 10
 Bakusou Kyoudai Let's & Go! 11
@@ -215,7 +223,10 @@ BTOOOM! 6
 Busou Renkin 5
 Busou Renkin 6
 Busou Renkin 9
+Canvas 2: Nijiiro no Sketch 1
+Canvas 2: Nijiiro no Sketch 2
 Canvas 2: Nijiiro no Sketch 3
+Canvas 2: Nijiiro no Sketch 4 end
 Card Captor Sakura 1
 Captain Tsubasa Premium 1
 Captain Tsubasa Premium 8
@@ -261,12 +272,14 @@ Croket! 10
 Croket! 12
 Croket! 13
 Croket! 15 end
+Cross Game 15 /17
 Crows 12
 Crows 14
 Crows 18
 Crows 19
 Crows 22
 Crush Gear Turbo 1
+Crush Gear Turbo 2
 Crush Gear Turbo 3
 Crush Gear Turbo 4
 Cyborg Kuro-chan 1
@@ -379,6 +392,7 @@ Dragon Ball 4
 Duel Masters 15
 Durarara!! 2
 Durarara!!: Saikai-hen 1
+Eagle 1 /11
 Eiga Crayon Shin-chan: Kanzen Comic Arashi wo Yobu Mouretsu! Otona Teikoku no Gyakushu
 Enen no Shoubotai 1 (Fire Force)
 Ergo Proxy 1
@@ -576,7 +590,9 @@ Hikaru no Go 9
 Hikaru no Go 10
 Hikaru no Go 13
 Hikaru no Go 14
+Hikaru no Go 15
 Hikaru no Go 17
+Hikaru no Go 18
 Hikaru no Go 21
 Hikaru no Go 23
 Haikyuu! 1
@@ -639,6 +655,8 @@ Ichiba Kurogane wa Kasegitai 10
 Ichiba Kurogane wa Kasegitai 11
 Ichiba Kurogane wa Kasegitai 12
 Ichiba Kurogane wa Kasegitai 13 end
+Ikenai Navigation 1
+Ikenai Navigation 2 end
 Imawa no Kuni no Alice 1
 Imawa no Kuni no Alice 2
 Imawa no Kuni no Alice 3
@@ -854,6 +872,7 @@ Kuroko no Basket 3
 Kuroko no Basket 6
 Kuroko no Basket 7
 Kuroko no Basket 8
+Kuroneko Renai Kumikyoku (oneshot) (Kuroneko)
 Kurosagi 5 (The Black Swindler)
 Kurozakuro 5
 Kotonoha no Niwa (oneshot)
@@ -973,11 +992,13 @@ Miracle Ball 2
 Miracle Ball 3
 Miracle Ball 4
 Miracle Ball 5
+Miracle Ball 12
 Mirai Nikki 1
 Mirai Nikki 2
 Mirai Nikki 3
 Mirai Nikki 5
 Mirai Nikki 8
+Mix 4
 Montage 1
 Montage 2
 Montage 3
@@ -1015,12 +1036,14 @@ Neon Genesis Evangelion the Iron Maiden 2nd 3
 Neon Genesis Evangelion the Iron Maiden 2nd 4
 New Comic Bomber 8
 New Little Ghost Q-taro 3
+Nihon Chinbotsu (Tokihiko ISHIKI)
 Nijiiro Tougarashi Bunkouban edition (Natane) 2
 Ninja Hattori-kun 9
 Nisekoi 8
 Nisekoi 13
 Nisekoi 15
 Nisekoi 17
+Nobunaga no Chef 1
 Nobunaga no Chef 4
 Nodame Cantabile 1
 Nodame Cantabile 4
@@ -1094,6 +1117,7 @@ Out Code 1
 Out Code 2
 Out Code 3 end
 Ousama-tachi no Viking 1
+Ousama-tachi no Viking 2 /19
 Over Drive 1
 Over Drive 4
 Piano no Mori 4
@@ -1104,6 +1128,9 @@ Planetes 4 end
 Pluto 2
 Prizona6 2
 Psycho-Pass: Kanshikan Tsunemori Akane 1
+QED 3
+QED 7
+QED 8
 QED 40
 QED 41
 Rainbow: Nisha Rokubou no Shichinin 1
@@ -1137,6 +1164,7 @@ Robot Boys 2
 Robot Boys 3 end
 Rockman.EXE 1
 Rough 6
+Rumic World 2 /3
 Rurouni Kenshin 1
 Rurouni Kenshin 2
 Rurouni Kenshin 3
@@ -1179,6 +1207,7 @@ Saike Matashitemo 8
 Saike Matashitemo 9
 Saike Matashitemo 10
 Saike Matashitemo 11
+Saike Matashitemo 12
 Sakamichi no Apollon 1
 Sakamichi no Apollon 2
 Sakamichi no Apollon 3
@@ -1192,6 +1221,12 @@ Sakamichi no Apollon bonus track
 Sakamoto desu ga? 1
 Sakamoto desu ga? 2
 Sakura Wars 1
+Sakura Wars 2
+Sakura Wars 3
+Sakura Wars 6
+Sakura Wars 7
+Sakura Wars 8
+Sakura Wars 9 end
 San-nen Z-gumi Pocchi-sensei (oneshot)
 Sanzoku Ou 4
 Sanzoku Ou 8
@@ -1287,6 +1322,7 @@ Shinrei Tantei Yakumo 8
 Shinrei Tantei Yakumo 9
 Shinrei Tantei Yakumo 10
 Shinrei Tantei Yakumo 11
+Shinrei Tantei Yakumo 13 /14
 Shitei Bouryoku Shoujo Shiomi-chan 1
 Shougakusei no Himitsu 1 (Rahasia Anak SD)
 Shougakusei no Himitsu 2
@@ -1562,3 +1598,4 @@ Zipang 11
 Zipang 13
 Zipang 19
 Zoids 1
+Zoids 2 /14
