@@ -203,6 +203,9 @@ Blue Giant 4
 Blue Giant 5
 Blue Giant 6
 Blue Giant 7
+Blue Giant 8
+Blue Giant 9
+Blue Giant 10 end
 Boku no Hero Academia 1
 Brave 10 1
 Brave 10 2
