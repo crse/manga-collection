@@ -508,6 +508,7 @@ Gin no Saji 11
 Gin no Saji 12
 Gin no Saji 13
 Gin no Saji 14
+Gin no Saji 15 end
 Girls un Panzer 1
 Girls un Panzer 2
 Girls un Panzer 3
@@ -1334,6 +1335,9 @@ Shinrei Tantei Yakumo 11
 Shinrei Tantei Yakumo 13 /14
 Shitei Bouryoku Shoujo Shiomi-chan 1
 Shitei Bouryoku Shoujo Shiomi-chan 2
+Shitei Bouryoku Shoujo Shiomi-chan 3
+Shitei Bouryoku Shoujo Shiomi-chan 4
+Shitei Bouryoku Shoujo Shiomi-chan 5 end
 Shougakusei no Himitsu 1 (Rahasia Anak SD)
 Shougakusei no Himitsu 2
 Shogakukan-ban Gakushuu Manga Jinbutsukan: Fujiko F. Fujio
