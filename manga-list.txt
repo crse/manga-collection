@@ -397,6 +397,8 @@ Duel Masters 15
 Durarara!! 2
 Durarara!!: Saikai-hen 1
 Eagle 1 /11
+Eagle 3
+Eagle 4
 Eiga Crayon Shin-chan: Kanzen Comic Arashi wo Yobu Mouretsu! Otona Teikoku no Gyakushu
 Enen no Shoubotai 1 (Fire Force)
 Ergo Proxy 1
@@ -517,6 +519,7 @@ Girls un Panzer Little Army 1
 Girls un Panzer Little Army 2 end
 Girls un Panzer Little Army II 1
 Girls un Panzer Little Army II 2
+Godhand Teru 1
 Godhand Teru 35
 Godhand Teru 37
 Godhand Teru 38
@@ -1010,6 +1013,7 @@ Mirai Nikki 3
 Mirai Nikki 5
 Mirai Nikki 8
 Mix 4
+Mizuiro Jidai 4
 Montage 1
 Montage 2
 Montage 3
@@ -1058,6 +1062,7 @@ Nobunaga no Chef 1
 Nobunaga no Chef 4
 Nodame Cantabile 1
 Nodame Cantabile 4
+Nodame Cantabile 6
 Nodame Cantabile 18
 Nodame Cantabile 21
 Nodame Cantabile 25
@@ -1154,6 +1159,9 @@ Rave 23
 Rave 35
 Rave: Plue Inu no Nikki 2
 Rave: Plue Inu no Nikki 3
+RED 1
+RED 2
+RED 3
 ReLife 1
 ReLife 2
 Rin 1
@@ -1390,6 +1398,7 @@ Tegami Bachi 3
 Tekken Chinmi Kanzenban 15
 Tekken Chinmi Legends 1
 Tekken Chinmi Legends 2
+Tekken Chinmi Legends 4
 Tekken Chinmi Legends 6
 Tekken Chinmi Legends 10
 Ten Kara no Okurimono (The Gift from heaven) (oneshot)
@@ -1446,6 +1455,7 @@ Tonari no Seki-kun 6
 Tonari no Seki-kun 7
 Tonari no Seki-kun 8
 Tonari no Seki-kun 9
+Tonari no Kashiwagi-kun 1
 Tonari no Kashiwagi-kun 2
 Tonari no Kashiwagi-kun 3
 Tonari no Kashiwagi-kun 4
