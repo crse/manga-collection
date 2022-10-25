@@ -1112,6 +1112,7 @@ One Piece 56
 One Piece 57
 One Piece 70
 One Punch Man 1
+One Punch Man 2
 One Punch Man 3
 One Punch Man 4
 One Punch Man 5
@@ -1581,6 +1582,7 @@ Yakitate!! Japan 25
 Yakusoku no Neverland 1
 Yakusoku no Neverland 2
 Yakusoku no Neverland 3
+Yakusoku no Neverland 4
 Yamada to Nananin no Majyo 1
 Yamada to Nananin no Majyo 2
 Yamada to Nananin no Majyo 3
