@@ -1163,6 +1163,7 @@ Rainbow: Nisha Rokubou no Shichinin 5
 Rave 6
 Rave 15
 Rave 23
+Rave 32
 Rave 35
 Rave: Plue Inu no Nikki 2
 Rave: Plue Inu no Nikki 3
@@ -1502,6 +1503,7 @@ Touch 24
 Touch 25
 Touch 26
 Toto 5
+Tsurikichi Sanpei 2 (Fishing Fun)
 Urusei Yatsura 28
 Urusei Yatsura 33
 Vero Musica 1
