@@ -622,6 +622,7 @@ Highschool of the Dead 5
 Highschool of the Dead 6
 Highschool of the Dead 7 end (halted)
 Hokuto no Ken 1
+Hokuto no Ken 2
 Homunculus 11
 Houkago Ponytail (oneshot) (After School x Ponytail)
 HUNTER×HUNTER 1
@@ -880,6 +881,8 @@ Koi wa Ameagari no You ni 3
 Koi wa Ameagari no You ni 4
 Koi wa Ameagari no You ni 5
 Koi wa Ameagari no You ni 6
+Koi wa Ameagari no You ni 7
+Koi wa Ameagari no You ni 8
 Koisuru Koto no ha (oneshoot) (Poetry of Love)
 Koufuku Graffiti 1
 Koufuku Graffiti 2
@@ -1401,6 +1404,7 @@ Tantei Gakuen Q 10
 Tantei Gakuen Q 16
 Tantei Gakuen Q 20
 Tantei Gakuen Q 22
+TariTari (Complete Edition 1-2)
 Tegami Bachi 2
 Tegami Bachi 3
 Tekken Chinmi Kanzenban 15
