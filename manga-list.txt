@@ -731,6 +731,7 @@ Kagetora 3
 Kagetora 4
 Kagetora 5
 Kagetora 8
+Kagetora 9
 Kagetora 10
 Kagetora 11 end
 Kage Kara Mamoru 1 (The Bodyguard)
@@ -997,6 +998,9 @@ Meitantei Conan Super Digest Book 20+
 Meitantei Conan Super Digest Book 30+
 Meitantei Conan: Tokubetsu-hen 33
 Meitantei Conan: Tokubetsu-hen 35
+Midori no Hibi 1
+Midori no Hibi 2
+Midori no Hibi 3
 Midori no Hibi 4
 Midori no Hibi 5
 Midori no Hibi 6
