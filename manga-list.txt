@@ -884,6 +884,8 @@ Koi wa Ameagari no You ni 5
 Koi wa Ameagari no You ni 6
 Koi wa Ameagari no You ni 7
 Koi wa Ameagari no You ni 8
+Koi wa Ameagari no You ni 9
+Koi wa Ameagari no You ni 10 end
 Koisuru Koto no ha (oneshoot) (Poetry of Love)
 Koufuku Graffiti 1
 Koufuku Graffiti 2
@@ -1123,6 +1125,7 @@ One Punch Man 2
 One Punch Man 3
 One Punch Man 4
 One Punch Man 5
+One Punch Man 6
 One Punch Man 7
 Orange 1
 Orange 3
