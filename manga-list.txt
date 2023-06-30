@@ -2,10 +2,9 @@
 21st Century Boys 1
 3x3 Eyes 25
 3x3 Eyes 37
-3-gatsu no Yume (oneshoot) (A Dream in March)
-Adagio (oneshoot)
+3-gatsu no Yume (oneshot) (A Dream in March)
+Adagio (oneshot)
 Ageha 100% 1/5
-Akihabara@Deep 5
 Air Gear 1
 Air Gear 2
 Air Gear 3
@@ -31,6 +30,7 @@ Air Gear 24
 Air Gear 29
 Air Gear 31
 Aisuru Mono wa Sukuwareru! (The Power of Love) (oneshot)
+Akihabara@Deep 5
 Akagami no Shirayukihime 11
 Akane-kun no Kokoro (oneshot) (Akane's Heart)
 Akatsuki no Yona 1
@@ -406,8 +406,8 @@ Doraemon - Nobita no Uchuu Kaitakushi (Jo/First)
 Doraemon: Saishin Himitsu Dougu Daijiten
 Doraemon Comic Quiz 4
 Doraemon no Gakushu Series - Menseki Taiseki ga Wakaru
-Doraemon no Kuruma-Isu no Hon (oneshoot)
-Dou Nannyo!? (oneshoot) (Lovely Change)
+Doraemon no Kuruma-Isu no Hon (oneshot)
+Dou Nannyo!? (oneshot) (Lovely Change)
 Double Baby (oneshot) (Penguin Summer)
 Dr.Stone 1
 Dr.Stone 2
@@ -915,7 +915,7 @@ Koi wa Ameagari no You ni 7
 Koi wa Ameagari no You ni 8
 Koi wa Ameagari no You ni 9
 Koi wa Ameagari no You ni 10 end
-Koisuru Koto no ha (oneshoot) (Poetry of Love)
+Koisuru Koto no ha (oneshot) (Poetry of Love)
 Koufuku Graffiti 1
 Koufuku Graffiti 2
 Koufuku Graffiti 3
@@ -932,7 +932,7 @@ Kurosagi 5 (The Black Swindler)
 Kurozakuro 5
 Kotonoha no Niwa (oneshot)
 Limit 1
-Let's Akumateku Kyoushitsu (oneshoot) (My Devilish Love)
+Let's Akumateku Kyoushitsu (oneshot) (My Devilish Love)
 Magi: The Labyrinth of Magic 1
 Magi: The Labyrinth of Magic 2
 Magi: The Labyrinth of Magic 3
@@ -1076,7 +1076,7 @@ Mugen no Genkan no Yamato 13
 Mujirushi
 Muryojoku Girl 1
 Muryojoku Girl 2 end
-Muzukashikutte Amai Koto (oneshoot) (A Bitter Sweet Thing)
+Muzukashikutte Amai Koto (oneshot) (A Bitter Sweet Thing)
 My Clumsy Boy! 2 end
 Nanairo Miracle 6
 Nanatsu no Taizai 1
@@ -1176,7 +1176,7 @@ Ore Monogatari 10
 Ore Monogatari 11
 Ore Monogatari 12
 Ore Monogatari 13 end
-Ore no Suki na Ko ga Brocon Sugiru (oneshoot) (Brother Complex' Girls!!)
+Ore no Suki na Ko ga Brocon Sugiru (oneshot) (Brother Complex' Girls!!)
 Otoboke Kachou 25
 Otoboke Kachou 26
 Otoyomegatari 3
@@ -1434,7 +1434,7 @@ Soul Eater 23
 Soul Eater 25 end
 Subete ga F ni Naru 1
 Subete ga F ni Naru 2 end
-Sugars☆ (oneshoot)
+Sugars☆ (oneshot)
 Takkoku!!! 1
 Takkoku!!! 2
 Takkoku!!! 3
@@ -1651,7 +1651,7 @@ Yamada to Nananin no Majyo 2
 Yamada to Nananin no Majyo 3
 Yomawari Sensei 1
 Yomawari Sensei 2
-Yesterday, Yes a day (onsehot)
+Yesterday, Yes a day (oneshot)
 Yoiko no Kokoroe (A Kind of Heart) (oneshot (ID) | 1/2 (JP))
 Yoru wa Mijikashi Arukeyo Otome 2
 Yoru wa Mijikashi Arukeyo Otome 3
