@@ -643,6 +643,7 @@ Highschool of the Dead 7 end (halted)
 Hokuto no Ken 1
 Hokuto no Ken 2
 Hokuto no Ken 3
+Hokuto no Ken 4
 Homunculus 11
 Houkago Ponytail (oneshot) (After School x Ponytail)
 HUNTER×HUNTER 1
@@ -1161,6 +1162,7 @@ One Punch Man 4
 One Punch Man 5
 One Punch Man 6
 One Punch Man 7
+One Punch Man 8
 Orange 1
 Orange 3
 Ore Monogatari 1
@@ -1442,6 +1444,7 @@ Takkoku!!! 4
 Takkoku!!! 5
 Takkoku!!! 6 end
 Takopi no Genzai 1
+Takopi no Genzai 2 end
 Tantei Gakuen Q 2
 Tantei Gakuen Q 9
 Tantei Gakuen Q 10
