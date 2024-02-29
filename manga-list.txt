@@ -226,6 +226,8 @@ BTOOOM! 3
 BTOOOM! 4
 BTOOOM! 5
 BTOOOM! 6
+Buddha 1
+Buddha 2
 Busou Renkin 5
 Busou Renkin 6
 Busou Renkin 9
