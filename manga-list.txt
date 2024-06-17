@@ -659,6 +659,18 @@ Highschool of the Dead 4
 Highschool of the Dead 5
 Highschool of the Dead 6
 Highschool of the Dead 7 end (halted)
+Hoero Pen / Comic Bomber 1
+Hoero Pen 2
+Hoero Pen 3
+Hoero Pen 4
+Hoero Pen 5
+Hoero Pen 6
+Hoero Pen 7
+Hoero Pen 8
+Hoero Pen 9
+Hoero Pen 10
+Hoero Pen 11
+Hoero Pen 12
 Hokuto no Ken 1
 Hokuto no Ken 2
 Hokuto no Ken 3
@@ -1447,9 +1459,21 @@ Sket Dance 6
 Sket Dance 7
 Sket Dance 8
 Sket Dance 11
-Sket Dance 14
+Sket Dance 14   
 Sket Dance 15
+Sket Dance 16
+Sket Dance 17
+Sket Dance 18
+Sket Dance 19
 Sket Dance 20
+Sket Dance 25
+Sket Dance 26
+Sket Dance 27
+Sket Dance 28
+Sket Dance 29
+Sket Dance 30
+Sket Dance 31
+Sket Dance 32 end
 Skip Beat ! 32
 Smash! 2
 Smash! 4
