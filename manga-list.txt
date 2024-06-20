@@ -786,6 +786,8 @@ Kagetora 2
 Kagetora 3
 Kagetora 4
 Kagetora 5
+Kagetora 6
+Kagetora 7
 Kagetora 8
 Kagetora 9
 Kagetora 10
@@ -880,12 +882,17 @@ Kekkaishi 9
 Kekkaishi 15
 Kekkaishi 30
 Kekkaishi 32
+Kenji (Bunkouban) 8
+Kenji (Bunkouban) 9
 Kenji (Bunkouban) 10
 Kenji (Bunkouban) 11
 Kenji (Bunkouban) 12
+Keroro Gunsou 3
 Keroro Gunsou 4
+Keroro Gunsou 6
 Keroro Gunsou 9
 Keroro Gunsou 13
+Keroro Gunsou 15
 Keroro Gunsou 16
 Keroro Gunsou 17
 Keroro Gunsou 18
@@ -1095,7 +1102,13 @@ Mirai Nikki 3
 Mirai Nikki 5
 Mirai Nikki 8
 Mix 4
+Mizuiro Jidai 1 / The Aqua Age
+Mizuiro Jidai 2
+Mizuiro Jidai 3
 Mizuiro Jidai 4
+Mizuiro Jidai 5
+Mizuiro Jidai 6
+Mizuiro Jidai 7 end
 Montage 1
 Montage 2
 Montage 3
@@ -1406,6 +1419,9 @@ Shin Kobochan 25
 Shin Kobochan 29
 Shin Kobochan 30
 Shin Kurosagi 2
+Shin Mizuiro Jidai 1 / New Aqua Age
+Shin Mizuiro Jidai 2
+Shin Mizuiro Jidai 3 end
 Shin Tekken Chinmi (Premium) 3
 Shin Tekken Chinmi (Premium) 7
 Shin Tekken Chinmi (Premium) 9
@@ -1442,6 +1458,9 @@ Shinrei Tantei Yakumo 10
 Shinrei Tantei Yakumo 11
 Shinrei Tantei Yakumo 13
 Shinrei Tantei Yakumo 14 end
+Shiranai Kuni no Monogatari 1 / Story of The Neverland
+Shiranai Kuni no Monogatari 2
+Shiranai Kuni no Monogatari 3 end
 Shitei Bouryoku Shoujo Shiomi-chan 1
 Shitei Bouryoku Shoujo Shiomi-chan 2
 Shitei Bouryoku Shoujo Shiomi-chan 3
@@ -1559,6 +1578,7 @@ Tokimeki Tonight 28
 Tokimeki Tonight 29
 Tokimeki Tonight 30
 Tokimeki Tonight: Hoshi no Yukue (Future)
+Tokyuu!! 2
 Tokyuu!! 4
 Tokyuu!! 7
 Tokyuu!! 8
