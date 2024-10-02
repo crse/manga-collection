@@ -442,6 +442,7 @@ Dr.Stone 2
 Dr.Stone 3
 Dr.Stone 4
 Dr.Stone 5
+Dr.Stone 6
 Dragon Ball 4
 Duel Masters 15
 Durarara!! 2
@@ -1520,6 +1521,7 @@ Sora Yori mo Takaku (Higher Than Sky) (oneshot)
 Soul Eater 17
 Soul Eater 23
 Soul Eater 25 end
+Sousou no Frieren 8
 Subete ga F ni Naru 1
 Subete ga F ni Naru 2 end
 Sugars☆ (oneshot)
@@ -1746,6 +1748,7 @@ Yomawari Sensei 1
 Yomawari Sensei 2
 Yesterday, Yes a day (oneshot)
 Yoiko no Kokoroe (A Kind of Heart) (oneshot (ID) | 1/2 (JP))
+Yomi no Tsugai 1
 Yoru wa Mijikashi Arukeyo Otome 2
 Yoru wa Mijikashi Arukeyo Otome 3
 Yotsuba&! 1
