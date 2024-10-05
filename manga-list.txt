@@ -132,6 +132,12 @@ Bakusou Kyoudai Let's & Go! 11
 Bakuten Shoot Beyblade 3
 Bakuten Shoot Beyblade 4
 Bambino! Secondo 8
+Bamboo Blade 1
+Bamboo Blade 2
+Bamboo Blade 3
+Bamboo Blade 4
+Bamboo Blade 5
+Bamboo Blade 6
 Barakamon 1
 Barakamon 2
 Barakamon 3
@@ -359,6 +365,7 @@ Dansai Bunri no Crime Edge 9
 Dansai Bunri no Crime Edge 10
 Dansai Bunri no Crime Edge 11 end
 Dareka ga Mitsumeteru (Ami)
+Dareka ni Hanashitaku Naru Kowai Hanashi (Scary Stories Untold)
 Deadman Wonderland 1
 Deadman Wonderland 2
 Deadman Wonderland 3
@@ -437,6 +444,8 @@ Doraemon no Himitsu Dougu Tsukaikata Jiten 3
 Doraemon no Kuruma-Isu no Hon (oneshot)
 Dou Nannyo!? (oneshot) (Lovely Change)
 Double Baby (oneshot) (Penguin Summer)
+Doukyuusei!! ~Zutto Kimi ga Suki datta~ 1 / Classroom
+Doukyuusei!! ~Zutto Kimi ga Suki datta~ 2
 Dr.Stone 1
 Dr.Stone 2
 Dr.Stone 3
@@ -1150,6 +1159,10 @@ Narutoya Ramen Road 3
 Narutoya Ramen Road 7 end
 Natsume Yuujinchou 2
 Nekogami Yaoyorozu 1
+Nekota no Koto ga Ki ni Natte Shikatanai. 1 / There's Something About Nekota
+Nekota no Koto ga Ki ni Natte Shikatanai. 2
+Nekota no Koto ga Ki ni Natte Shikatanai. 3
+Nekota no Koto ga Ki ni Natte Shikatanai. 4
 Neon Genesis Evangelion 2
 Neon Genesis Evangelion 3
 Neon Genesis Evangelion 6
@@ -1382,6 +1395,11 @@ Sanzoku Ou 10
 Sanzoku Ou 11
 Seikan Bridge 1
 Sekai Seifuku Honey (Super Sweet Honey) (oneshot)
+Sekirara ni Kiss 1 / Sincerely Kiss
+Sekirara ni Kiss 2
+Sekirara ni Kiss 3
+Sekirara ni Kiss 4
+Sekirara ni Kiss 5
 Sengoku Basara: Ranseranbu 1
 Sengoku Basara: Ranseranbu 2
 Sengoku Basara: Ranseranbu 3 end
@@ -1780,6 +1798,11 @@ Yuki ni Tsubasa 1
 Yuki ni Tsubasa 2
 Yuki ni Tsubasa 3
 Yumekui Merry 10
+Yuugure Light 1 / Evening Twilight
+Yuugure Light 2
+Yuugure Light 3
+Yuugure Light 4
+Yuugure Light 5 end
 Zero no Tsukaima 2
 Zero no Tsukaima 3
 Zero no Tsukaima 7
