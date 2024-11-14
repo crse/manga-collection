@@ -91,6 +91,7 @@ Arata Kangatari 3
 Arata Kangatari 4
 Arata Kangatari 5
 Arata Kangatari 6
+Arata Kangatari 7
 Area D Ino no Ryouiki 1
 Aria 1
 Aria 2
@@ -205,6 +206,7 @@ BLEACH 41
 Blood Alone 1
 Blood Alone 3
 Blood Alone 4
+Blood Alone 5
 Blood Lad 1
 Bloody Monday 2
 Bloody Monday 8
@@ -438,6 +440,9 @@ Doraemon - Nobita no Uchuu Kaitakushi (Jo/First)
 Doraemon: Saishin Himitsu Dougu Daijiten
 Doraemon Comic Quiz 4
 Doraemon no Gakushu Series - Menseki Taiseki ga Wakaru
+Doraemon no Gakushu Series - Doraemon no Sansuu Omoshiro Kouryaku - Bunshoudai ga Wakaru
+Doraemon no Gakushu Series - Doraemon no Sansuu Omoshiro Kouryaku - Zoku Bunshoudai ga Wakaru
+Doraemon no Gakushu Series - Doraemon no Sansuu Omoshiro Kouryaku - Zukei ga Wakaru
 Doraemon no Himitsu Dougu Tsukaikata Jiten 1 / Seri Peralatan Ajaib Doraemon
 Doraemon no Himitsu Dougu Tsukaikata Jiten 2
 Doraemon no Himitsu Dougu Tsukaikata Jiten 3
@@ -504,11 +509,14 @@ Eyeshield 21 34
 Eyeshield 21 35
 Eyeshield 21 36 end
 Fairy Tail 3
+Fairy Tail 8
 Fairy Tail 10
 Fairy Tail 14
 Fairy Tail 15
 Fairy Tail 16
 Fairy Tail 27
+Fairy Tail 34
+Fairy Tail 35
 Fairy Tail 45
 Flying Witch 1
 Flying Witch 2
@@ -546,6 +554,15 @@ Fullmetal Alchemist Kanzenban 11
 Fullmetal Alchemist 20th Anniversary Book
 Fumetsu no Anata e 1
 Fumetsu no Anata e 2
+Fushigi Yuugi 6
+Fushigi Yuugi 7
+Fushigi Yuugi 8
+Fushigi Yuugi 9
+Fushigi Yuugi 10
+Fushigi Yuugi 12
+Fushigi Yuugi 13
+Fushigi Yuugi 16
+Fushigi Yuugi 17
 Futatsu no Spica 4
 Gamaran 1
 Gegege no Kitarou: Youkai Sen Monogatari 1
@@ -622,6 +639,12 @@ Gundam Wing 3 end
 Gundam Wing: Battle field of Pacifist (oneshot)
 H2 1
 Hadashi no Gen 1
+Hakobune Hakusho (White Paper Ark) 1
+Hakobune Hakusho 2
+Hakobune Hakusho 3
+Hakobune Hakusho 4
+Hakobune Hakusho 6
+Hakobune Hakusho 7 end
 Hajime no Ippo 33
 Hajime no Ippo 86
 Hajimete no Aku 2
@@ -687,6 +710,9 @@ Highschool of the Dead 4
 Highschool of the Dead 5
 Highschool of the Dead 6
 Highschool of the Dead 7 end (halted)
+Hitohira 2
+Hitohira 3
+Hitohira 4
 Hoero Pen / Comic Bomber 1
 Hoero Pen 2
 Hoero Pen 3
@@ -959,6 +985,7 @@ Kimi to Himitsu no Hanazono 3 end
 Kimi wa Sora no Subete 2 (You Are My World)
 Kimi wa Sora no Subete 3
 Kindaichi Shounen no Jikenbou 20th Anniversary Series 2
+Kindaichi Shounen no Jikenbou Case 1
 Kindaichi Shounen no Jikenbou Case 2
 Kindaichi Shounen no Jikenbou Kanzenban 6
 Kindaichi Shounen no Jikenbou Kanzenban 7
@@ -1299,6 +1326,7 @@ Rave 15
 Rave 23
 Rave 32
 Rave 35
+Rave: Plue Inu no Nikki 1
 Rave: Plue Inu no Nikki 2
 Rave: Plue Inu no Nikki 3
 RED 1
@@ -1501,6 +1529,7 @@ Shinrei Tantei Yakumo 14 end
 Shiranai Kuni no Monogatari 1 / Story of The Neverland
 Shiranai Kuni no Monogatari 2
 Shiranai Kuni no Monogatari 3 end
+Shiritsu Sei Cattleya Youchien (oneshot) St. Cattleya Kindergarten
 Shitei Bouryoku Shoujo Shiomi-chan 1
 Shitei Bouryoku Shoujo Shiomi-chan 2
 Shitei Bouryoku Shoujo Shiomi-chan 3
@@ -1619,6 +1648,7 @@ Tokimeki Tonight 28
 Tokimeki Tonight 29
 Tokimeki Tonight 30
 Tokimeki Tonight: Hoshi no Yukue (Future)
+Tokyuu!! 1
 Tokyuu!! 2
 Tokyuu!! 4
 Tokyuu!! 7
@@ -1796,6 +1826,11 @@ Yozakura Quartet 5
 Yozakura Quartet 7
 Yozakura Quartet 9
 Yu Gi Oh! Bunkouban 1
+Yu Yu Hakusho 9
+Yu Yu Hakusho 12
+Yu Yu Hakusho 13
+Yu Yu Hakusho 14
+Yu Yu Hakusho 15
 Yu Yu Hakusho 16
 Yu Yu Hakusho 18
 Yugo The Negotiator 30 In Toyako Summit (1/2)
