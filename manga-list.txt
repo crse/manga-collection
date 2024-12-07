@@ -407,6 +407,7 @@ Denpa Kyoushi 2
 Denpa Kyoushi 3
 Denpa Kyoushi 4
 Denpa Kyoushi 5
+Densha Otoko 1
 Densha Otoko 2
 Diamond no Ace 1
 Dobinson Hyouryuuki
@@ -704,6 +705,7 @@ Highschool of the Dead 4
 Highschool of the Dead 5
 Highschool of the Dead 6
 Highschool of the Dead 7 end (halted)
+Hikaru no Go 4
 Hikaru no Go 9
 Hikaru no Go 10
 Hikaru no Go 13
@@ -766,6 +768,7 @@ HUNTER×HUNTER 27
 Hyakko 1
 Hyakko 2
 Hyakko 3
+Hyakko 5
 I Am A Hero 1
 I Am A Hero 5
 Ichiba Kurogane wa Kasegitai 1
@@ -1063,6 +1066,7 @@ Magi: The Labyrinth of Magic 28
 Magi: The Labyrinth of Magic 29
 Magi: The Labyrinth of Magic 30
 Mahou no Iroha 1
+Mahou no Iroha 2
 Mahou no Iroha 3 end
 Mahoutsukai no Yome 1
 Mahoutsukai no Yome 2
@@ -1179,7 +1183,9 @@ Mou Hitori no Marionette (The Other Marionette) 7
 Mou Hitori no Marionette 8
 Mugen no Genkan no Yamato 1
 Mugen no Genkan no Yamato 2
+Mugen no Genkan no Yamato 4
 Mugen no Genkan no Yamato 11
+Mugen no Genkan no Yamato 12
 Mugen no Genkan no Yamato 13
 Mujirushi
 Muryojoku Girl 1
@@ -1245,6 +1251,8 @@ Nurarihyon no Mago 14
 Nurarihyon no Mago 15
 Nurarihyon no Mago 16
 Nurarihyon no Mago 17
+Ocharakahoi! 1 / Tea Club
+Ocharakahoi! 2 end
 Omurice / Omelette 1
 Omurice 2
 Omurice 3
@@ -1695,11 +1703,14 @@ Toriko 6
 Touch 1
 Touch 2
 Touch 3
+Touch 4
 Touch 5
 Touch 6
 Touch 7
 Touch 8
+Touch 9
 Touch 13
+Touch 14
 Touch 15
 Touch 16
 Touch 17
@@ -1755,6 +1766,7 @@ Wild Life 25
 Wild Life 26
 Wild Life 27 end
 Wonderland 1
+Yaiba 4
 Yaiba 5
 Yaiba 6
 Yaiba 9
