@@ -275,9 +275,13 @@ City Hunter Kanzenban 3
 City Hunter Kanzenban 4
 City Hunter Kanzenban 5
 City Hunter Kanzenban 6
+City Hunter Kanzenban 7
 City Hunter Rebirth 1
 City Hunter Rebirth 2
 City Hunter Rebirth 3
+City Hunter Rebirth 5
+City Hunter Rebirth 6
+City Hunter Rebirth 8
 Claymore 17
 CMB 21
 Code Breaker 1
@@ -472,6 +476,9 @@ Durarara!!: Saikai-hen 1
 Eagle 1 /11
 Eagle 3
 Eagle 4
+Edens Zero 9
+Edens Zero 10
+Edens Zero 11
 Eiga Crayon Shin-chan: Kanzen Comic Arashi wo Yobu Mouretsu! Otona Teikoku no Gyakushu
 Enen no Shoubotai 1 (Fire Force)
 Ergo Proxy 1
@@ -522,6 +529,7 @@ Fairy Tail 27
 Fairy Tail 34
 Fairy Tail 35
 Fairy Tail 45
+Fate/Apocrypha 1
 Flying Witch 1
 Flying Witch 2
 Flying Witch 3
@@ -811,6 +819,7 @@ Imawa no Michi no Alice 4
 Imawa no Michi no Alice 5
 Imawa no Michi no Alice 6
 Imawa no Michi no Alice 7
+Imouto-tachi ni Yakasetai! 2 end
 Inari, Konkon, Koi Iroha. 1
 Inari, Konkon, Koi Iroha. 2
 Inari, Konkon, Koi Iroha. 3
@@ -1340,11 +1349,13 @@ Rave 35
 Rave: Plue Inu no Nikki 1
 Rave: Plue Inu no Nikki 2
 Rave: Plue Inu no Nikki 3
+Re:Zero kara Hajimeru Isekai Seikatsu: Dai-2 Shou - Yashiki no Isshuukan-hen 5
 RED 1
 RED 2
 RED 3
 ReLife 1
 ReLife 2
+Renai Judgement (oneshot) (Love Judgement)
 Rin 1
 Rin 2
 Rin 3
