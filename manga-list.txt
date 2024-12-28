@@ -1048,6 +1048,10 @@ Kurozakuro 5
 Kotonoha no Niwa (oneshot)
 Limit 1
 Let's Akumateku Kyoushitsu (oneshot) (My Devilish Love)
+Magi: Sinbad no Bouken 1
+Magi: Sinbad no Bouken 2
+Magi: Sinbad no Bouken 3
+Magi: Sinbad no Bouken 5
 Magi: The Labyrinth of Magic 1
 Magi: The Labyrinth of Magic 2
 Magi: The Labyrinth of Magic 3
@@ -1227,7 +1231,7 @@ Neon Genesis Evangelion the Iron Maiden 2nd 3
 Neon Genesis Evangelion the Iron Maiden 2nd 4
 New Comic Bomber 8
 New Little Ghost Q-taro 3
-Nihon Chinbotsu (Tokihiko ISHIKI)
+Nihon Chinbotsu (Tokihiko ISHIKI) 1
 Nijiiro Tougarashi Bunkouban edition (Natane) 2
 Ninja Hattori-kun 9
 Nisekoi 8
@@ -1721,8 +1725,8 @@ Touch 6
 Touch 7
 Touch 8
 Touch 9
+Touch 11
 Touch 13
-Touch 14
 Touch 15
 Touch 16
 Touch 17
@@ -1730,7 +1734,6 @@ Touch 18
 Touch 19
 Touch 20
 Touch 21
-Touch 22
 Touch 23
 Touch 24
 Touch 25
