@@ -95,7 +95,13 @@ Arata Kangatari 7
 Area D Ino no Ryouiki 1
 Aria 1
 Aria 2
+Aria 3
+Aria 4
+Aria 5
+Aria 6
+Aria 7
 Aria 8
+Aria 9
 Arms 13 /22
 Arslan Senki 1
 Azumanga Daioh 4
@@ -1046,8 +1052,10 @@ Kuroneko Renai Kumikyoku (oneshot) (Kuroneko)
 Kurosagi 5 (The Black Swindler)
 Kurozakuro 5
 Kotonoha no Niwa (oneshot)
-Limit 1
+Le Portrait de Petit Cossette 1
+Le Portrait de Petit Cossette 2
 Let's Akumateku Kyoushitsu (oneshot) (My Devilish Love)
+Limit 1
 Magi: Sinbad no Bouken 1
 Magi: Sinbad no Bouken 2
 Magi: Sinbad no Bouken 3
@@ -1358,6 +1366,10 @@ Re:Zero kara Hajimeru Isekai Seikatsu: Dai-2 Shou - Yashiki no Isshuukan-hen 5
 RED 1
 RED 2
 RED 3
+Release: The Emancipation of Personality 1
+Release: The Emancipation of Personality 2
+Release: The Emancipation of Personality 3
+Release: The Emancipation of Personality 4
 ReLife 1
 ReLife 2
 Renai Judgement (oneshot) (Love Judgement)
