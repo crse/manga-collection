@@ -474,6 +474,8 @@ Dr.Stone 6
 Dr.Stone 7
 Dr.Stone 8
 Dr.Stone 9
+Dr.Stone 10
+Dr.Stone 11
 Dragon Ball 4
 Duel Masters 15
 Dungeon Meshi 1
@@ -928,6 +930,8 @@ Kanojo wa Uso wo Aishisugiteru 5
 Karakai Jouzu no Takagi-san 1
 Karakai Jouzu no Takagi-san 2
 Karakai Jouzu no Takagi-san 3
+Karakai Jouzu no Takagi-san 4
+Karakai Jouzu no Takagi-san 5
 Karakuri Circus 10
 Kare Made Love km (Love km) 2
 Kare Made Love km 3
