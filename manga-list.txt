@@ -476,6 +476,7 @@ Dr.Stone 8
 Dr.Stone 9
 Dr.Stone 10
 Dr.Stone 11
+Dr.Stone 12
 Dragon Ball 4
 Duel Masters 15
 Dungeon Meshi 1
@@ -754,6 +755,7 @@ Hokuto no Ken 3
 Hokuto no Ken 4
 Hokuto no Ken 5
 Hokuto no Ken 6
+Hokuto no Ken 7
 Homunculus 11
 Houkago Ponytail (oneshot) (After School x Ponytail)
 HUNTER×HUNTER 1
