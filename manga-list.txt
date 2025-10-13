@@ -314,6 +314,7 @@ Crayon Shinchan 15
 Crayon Shinchan 24
 Crayon Shinchan Komik Permainan 3
 Crayon Shinchan Movie: The Adult Empire Strikes Back
+Croket! 1
 Croket! 2
 Croket! 3
 Croket! 4
@@ -323,8 +324,10 @@ Croket! 7
 Croket! 8
 Croket! 9
 Croket! 10
+Croket! 11
 Croket! 12
 Croket! 13
+Croket! 14
 Croket! 15 end
 Cross Game 15 /17
 Crows 12
@@ -553,6 +556,7 @@ Fullmetal Alchemist 2
 Fullmetal Alchemist 4
 Fullmetal Alchemist 6
 Fullmetal Alchemist 9
+Fullmetal Alchemist 11
 Fullmetal Alchemist 12
 Fullmetal Alchemist 15
 Fullmetal Alchemist 17
@@ -884,6 +888,7 @@ Kaichou wa Maid-sama! 3
 Kaichou wa Maid-sama! 4
 Kaichou wa Maid-sama! 5
 Kaichou wa Maid-sama! 6
+Kaichou wa Maid-sama! 7
 Kaichou wa Maid-sama! 8
 Kaichou wa Maid-sama! 9
 Kaichou wa Maid-sama! 10
@@ -982,6 +987,7 @@ Kenji (Bunkouban) 9
 Kenji (Bunkouban) 10
 Kenji (Bunkouban) 11
 Kenji (Bunkouban) 12
+Keroro Gunsou 1
 Keroro Gunsou 3
 Keroro Gunsou 4
 Keroro Gunsou 6
