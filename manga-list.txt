@@ -282,11 +282,15 @@ City Hunter Kanzenban 4
 City Hunter Kanzenban 5
 City Hunter Kanzenban 6
 City Hunter Kanzenban 7
+City Hunter Kanzenban 9
+City Hunter Kanzenban 10
 City Hunter Rebirth 1
 City Hunter Rebirth 2
 City Hunter Rebirth 3
+City Hunter Rebirth 4
 City Hunter Rebirth 5
 City Hunter Rebirth 6
+City Hunter Rebirth 7
 City Hunter Rebirth 8
 Claymore 17
 CMB 21
@@ -765,6 +769,8 @@ Hokuto no Ken 4
 Hokuto no Ken 5
 Hokuto no Ken 6
 Hokuto no Ken 7
+Hokuto no Ken 8
+Hokuto no Ken 9
 Homunculus 11
 Houkago Ponytail (oneshot) (After School x Ponytail)
 HUNTER×HUNTER 1
