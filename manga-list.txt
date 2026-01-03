@@ -405,6 +405,7 @@ Deadman Wonderland 13 end
 Death Note 1
 Death Note 2
 Death Note 3
+Death Note 4
 Death Note 5
 Death Note 6
 Death Note 7
@@ -566,7 +567,9 @@ Fukusuke 2 end
 Fullmetal Alchemist 2
 Fullmetal Alchemist 4
 Fullmetal Alchemist 6
+Fullmetal Alchemist 8
 Fullmetal Alchemist 9
+Fullmetal Alchemist 10
 Fullmetal Alchemist 11
 Fullmetal Alchemist 12
 Fullmetal Alchemist 15
