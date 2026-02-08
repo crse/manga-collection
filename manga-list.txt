@@ -565,15 +565,22 @@ Flying Witch 2
 Flying Witch 3
 Fukusuke 1
 Fukusuke 2 end
+Fullmetal Alchemist 1
 Fullmetal Alchemist 2
+Fullmetal Alchemist 3
 Fullmetal Alchemist 4
+Fullmetal Alchemist 5
 Fullmetal Alchemist 6
+Fullmetal Alchemist 7
 Fullmetal Alchemist 8
 Fullmetal Alchemist 9
 Fullmetal Alchemist 10
 Fullmetal Alchemist 11
 Fullmetal Alchemist 12
+Fullmetal Alchemist 13
+Fullmetal Alchemist 14
 Fullmetal Alchemist 15
+Fullmetal Alchemist 16
 Fullmetal Alchemist 17
 Fullmetal Alchemist 18
 Fullmetal Alchemist 19
