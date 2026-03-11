@@ -430,6 +430,7 @@ Denpa Kyoushi 4
 Denpa Kyoushi 5
 Densha Otoko 1
 Densha Otoko 2
+Densha Otoko 3
 Diamond no Ace 1
 Dobinson Hyouryuuki
 Dorabase 10
@@ -1311,6 +1312,7 @@ Nisekoi 15
 Nisekoi 17
 Nobunaga no Chef 1
 Nobunaga no Chef 4
+Nobunaga no Chef 9
 Nodame Cantabile 1
 Nodame Cantabile 4
 Nodame Cantabile 6
@@ -1950,6 +1952,7 @@ Yotsuba&! 12
 Yotsuba&! 14
 Youkai Watch 1
 Youkai Watch 2
+Youkai Watch 5
 Yozakura Quartet 1
 Yozakura Quartet 2
 Yozakura Quartet 5
