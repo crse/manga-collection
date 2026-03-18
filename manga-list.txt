@@ -677,7 +677,11 @@ Gon 4
 Gon 5
 Gon 6
 Gon 7 end
+Great Teacher Onizuka 2
+Great Teacher Onizuka 3
+Great Teacher Onizuka 4
 Great Teacher Onizuka 5
+Great Teacher Onizuka 7
 Great Teacher Onizuka 8
 Great Teacher Onizuka 12
 Great Teacher Onizuka 13
@@ -689,7 +693,10 @@ Great Teacher Onizuka 25 end
 Green Blood 1
 Green Blood 2
 Green Blood 3
-GTO:  Shounan Days 3
+GTO:  Shounan 14 Days 1
+GTO:  Shounan 14 Days 3
+GTO:  Shounan 14 Days 5
+GTO:  Shounan 14 Days 6
 Gundam Seed 2
 Gundam Wing 1
 Gundam Wing 2
@@ -915,6 +922,7 @@ Kagetora 9
 Kagetora 10
 Kagetora 11 end
 Kage Kara Mamoru 1 (The Bodyguard)
+Kage Kara Mamoru 3
 Kaichou wa Maid-sama! 1
 Kaichou wa Maid-sama! 2
 Kaichou wa Maid-sama! 3
