@@ -669,7 +669,7 @@ Godhand Teru 7
 Godhand Teru 35
 Godhand Teru 37
 Godhand Teru 38
-Godhand Teru: Chinmoku no Corona 2020 
+Godhand Teru: Chinmoku no Corona 2020
 Gon 1
 Gon 2
 Gon 3
@@ -1665,7 +1665,7 @@ Sket Dance 6
 Sket Dance 7
 Sket Dance 8
 Sket Dance 11
-Sket Dance 14   
+Sket Dance 14
 Sket Dance 15
 Sket Dance 16
 Sket Dance 17
